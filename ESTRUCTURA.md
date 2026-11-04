@@ -4,7 +4,15 @@ Orden tentativo. Se ajusta cuando empiece la escritura.
 
 ## Prólogo — Dios habla por la creación
 
-- El hermano Lorenzo, alrededor de los 18 años, frente a un árbol pelado en invierno.
+**¿Cómo nació el libro?**
+
+- Todos los años, una amiga de Nico ve los árboles florecidos, se acuerda del testimonio del jacarandá y las luces violetas, y se lo recuerda. Este año no fue la excepción.
+- A Nico le pasa lo mismo: en diagonal a su casa hay un árbol de flores violetas, y cada vez que florece lo vive como un pequeño mimo de Jesús que le recuerda aquella primera experiencia.
+- Meditando en *La práctica de la presencia de Dios*, le resonó la conversión del hermano Lorenzo: a los dieciocho años, en invierno, vio un árbol sin hojas, pensó que volverían las hojas, las flores y el fruto, y recibió una visión de la providencia y el poder de Dios que nunca se le borró (ver [`fuentes/hermano-lorenzo.md`](fuentes/hermano-lorenzo.md)).
+- Eso fue el flechazo final: escribir un libro con las experiencias en que Dios le habló a través de la naturaleza para ayudarlo a comprender, aconsejarlo, hacerlo sentir querido, mimado, protegido y redireccionado.
+
+**¿Qué más va?**
+
 - La idea de *El Camino a Cristo* sobre las formas en que Dios nos habla: la naturaleza, su providencia, la influencia de su Espíritu y su Palabra (cita a verificar, ver `INVESTIGACION.md`).
 - Para qué este libro: mirar lo cotidiano para que la mirada termine en Dios.
 

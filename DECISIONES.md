@@ -24,10 +24,17 @@ El testimonio es el centro. La Biblia y la ciencia entran sólo donde le dan cue
 
 Prólogo, capítulos y epílogo se escriben sólo cuando Nico lo decida.
 
+## D-007 — Traducción bíblica
+
+Traducción propia, directamente del hebreo y del griego. Una vez hecha cada cita, se respeta letra por letra en todo el libro.
+
+## D-008 — Cómo nace el libro va en el prólogo
+
+El prólogo cuenta el origen: la amiga que cada año recuerda el testimonio del jacarandá cuando ve los árboles florecidos, el árbol violeta en diagonal a la casa de Nico, y la conversión del hermano Lorenzo como el flechazo final para escribir.
+
 # ¿Qué falta decidir?
 
 - **¿El título se queda aunque no sea pregunta?** `VOZ.md` pide que todos los títulos sean preguntas. Nico eligió uno que no lo es. Hay que decidir si es una excepción para el título del libro, o si se busca una forma de pregunta. Los títulos de capítulo sí irían como preguntas.
-- **¿Qué traducción bíblica se usa?** Propia o el Nuevo Testamento de David Bentley Hart, según `FUENTES.md`.
 - **¿Cómo conviven los testimonios con la regla de no ponerse como medida?** El libro es autobiográfico por naturaleza. Los testimonios son reales y van como hechos; lo que hay que cuidar es no presentar a Nico como ejemplo a imitar ni como medida de la fe del lector.
 - **¿La parte «Cuidado en lo chico» queda como parte propia?**
 - **¿Entran testimonios de veces en que se pidió una señal y no llegó?** Le darían al libro más honestidad y evitarían que se lea como fórmula.

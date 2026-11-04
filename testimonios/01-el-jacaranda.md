@@ -24,3 +24,4 @@ Jesús es real y me escuchó. El árbol ya estaba ahí, pero Jesús usó su flor
 - Primer caso del patrón «no te voy a pedir…»: sigue con el murciélago (03) y la rama (04).
 - El árbol que florece a su tiempo, sin esfuerzo, anticipa el epílogo.
 - Fue Nico quien nombró el color: dijo «luces violetas» y la respuesta llegó en violeta.
+- Sigue vivo: una amiga se lo recuerda todos los años cuando florecen los árboles, y el árbol violeta en diagonal a su casa se lo recuerda a él. Esto va en el prólogo.
