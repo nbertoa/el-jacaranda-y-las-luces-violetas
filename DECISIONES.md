@@ -22,7 +22,11 @@ El testimonio es el centro. La Biblia y la ciencia entran sólo donde le dan cue
 
 ## D-006 — Cuándo se escribe
 
-Prólogo, capítulos y epílogo se escriben sólo cuando Nico lo decida.
+Nico pidió el 4 de noviembre de 2026 escribir el libro completo de una vez. Está el primer borrador en `manuscrito/`.
+
+## D-009 — Un capítulo por testimonio, sin páginas de partes
+
+Cada testimonio es un capítulo, en el orden de `ESTRUCTURA.md`. Las partes quedan como orden interno, sin páginas propias. La cita de *El Camino a Cristo* está en el capítulo «El privilegio de la oración».
 
 ## D-007 — Traducción bíblica
 
