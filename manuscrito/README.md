@@ -1,6 +1,6 @@
 # Manuscrito
 
-Primer borrador completo, escrito el 4 de noviembre de 2026. Unas 10.000 palabras.
+Segundo borrador, revisado el 4 de noviembre de 2026 para que los testimonios sean el centro y se escuche bien en ElevenReader. Unas 7.000 palabras.
 
 | Archivo | Título |
 |---|---|

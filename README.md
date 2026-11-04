@@ -26,4 +26,4 @@ Libro narrativo-contemplativo de Nicolás Bertoa. Reúne testimonios reales de c
 
 ## ¿En qué estado está?
 
-4 de noviembre de 2026: primer borrador completo del manuscrito (unas 10.000 palabras). Lo que falta revisar está en [`manuscrito/README.md`](manuscrito/README.md).
+4 de noviembre de 2026: segundo borrador del manuscrito (unas 7.000 palabras). Lo que falta revisar está en [`manuscrito/README.md`](manuscrito/README.md).
