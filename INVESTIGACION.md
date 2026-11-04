@@ -1,0 +1,49 @@
+# ¿Qué hay que investigar?
+
+Nada de esta lista está verificado todavía. Son pistas a confirmar o descartar.
+
+## ¿Qué fuentes hay que verificar?
+
+- [ ] **El Camino a Cristo.** El pasaje que dice que Dios nos habla por la naturaleza, por su providencia, por la influencia de su Espíritu y por su Palabra. Nico recuerda la página 92. Una búsqueda inicial lo ubica en el capítulo sobre el conocimiento de Dios; falta confirmar el texto exacto en español, la edición y la página.
+- [ ] **Hermano Lorenzo.** El relato original de su conversión frente al árbol en invierno, en la primera conversación de *La práctica de la presencia de Dios*. Confirmar la edad (alrededor de 18 años) y qué dice exactamente.
+
+## ¿Qué hay que buscar en la Biblia?
+
+Separar siempre lo que el texto dice de lo que me parece. No forzar textos para que encajen.
+
+- [ ] **Árboles en general:** Salmo 1, Jeremías 17, Juan 15 (la vid y los pámpanos), «por sus frutos los conocerán», la higuera que recibe un año más, el árbol de la vida en Génesis y Apocalipsis.
+- [ ] **La creación que habla:** Job 12 (pregúntale a los animales y a las aves), Salmo 19 (los cielos cuentan), Romanos 1 (lo invisible de Dios se ve en lo creado). Leerlos a la luz de Jesús.
+- [ ] **Jesús enseñando con la naturaleza:** los lirios y las aves, la semilla de mostaza, el sembrador, la higuera.
+- [ ] **Palomas:** Noé, el bautismo de Jesús.
+- [ ] **Murciélagos:** dónde aparecen (listas de animales impuros, Isaías 2).
+- [ ] **Semillas y compartir:** Eclesiastés 11 (echar el pan sobre las aguas, sembrar sin saber qué prosperará), la parábola del sembrador.
+- [ ] **Poda e invierno:** Juan 15. Distinguir árbol seco, árbol en invierno y árbol podado.
+- [ ] **Primer amor:** Apocalipsis 2.
+- [ ] **Velar y orar:** Getsemaní.
+- [ ] **Buscar de todo corazón:** Jeremías 29.
+- [ ] **Viento:** Juan 3, Pentecostés. Usar con cuidado.
+- [ ] **Los pajaritos que caen:** Mateo 10. El texto no promete que no caigan, sino que no caen sin el Padre. Revisar la traducción.
+- [ ] **El sufrimiento sin respuesta:** Job, salmos de queja.
+
+## ¿Qué hay que buscar en la ciencia?
+
+Sólo lo que le dé cuerpo al capítulo.
+
+- [ ] **Jacarandá:** cuándo florece en Córdoba, por qué florece antes de echar hojas.
+- [ ] **El árbol del vecino:** identificar la especie. Cómo funciona la dispersión explosiva de semillas y otros mecanismos (caída, viento, animales, insectos).
+- [ ] **Árbol en invierno, árbol seco y árbol podado:** qué pasa adentro en cada caso.
+- [ ] **Hongos en fila o en círculo:** la red subterránea del hongo, raíces o madera enterrada.
+- [ ] **Viento cálido repentino con cielo despejado:** viento norte en las sierras de Córdoba u otra explicación. Falta saber dónde y en qué época fue el retiro.
+- [ ] **Mantarraya:** cómo pica y por qué el agua caliente alivia (veneno que se degrada con el calor).
+- [ ] **Murciélagos en Brasilia:** especies grandes, relación con el cañaveral.
+- [ ] **Jabalíes o cerdos salvajes:** comportamiento con crías.
+- [ ] **Forma de los árboles:** por qué las ramas crecen irregulares (luz, gravedad, competencia, ambiente). Entender la biología antes de construir cualquier imagen espiritual.
+- [ ] **Naranjo agrio y limonero:** cuánto tarda un limonero en dar fruto abundante.
+- [ ] **Paisaje de Villa La Angostura:** bosque y montaña del sendero, si suma.
+
+## ¿Qué preguntas quedan para Nico?
+
+- ¿Qué árbol del vecino es? Una foto de la cáscara o de las hojas ayudaría.
+- ¿Dónde y en qué época fue el retiro del viento cálido?
+- ¿En qué año fue cada testimonio, aproximadamente?
+- ¿Hubo veces en que pediste una señal y no llegó?
