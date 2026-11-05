@@ -8,9 +8,7 @@ Muchas veces las naranjas caen al suelo y se pudren, porque nadie las junta. Uno
 
 Sin embargo, el árbol las sigue dando. No necesita saber quién las va a recoger.
 
-Yo escribo libros, grabo audiolibros, comparto reflexiones, testimonios, predicaciones, cosas en YouTube y en los estados de WhatsApp. Y muchas veces no sé qué pasa con todo eso. No sé quién lo lee, quién lo escucha, ni si le cambia algo a alguien.
-
-En cierto sentido, me parezco al naranjo de enfrente. No necesito controlar el destino de cada fruto para que tenga sentido darlo. Me gustaría que lo que comparto llegue a alguien y lo acerque a Jesús. Pero eso no está en mis manos. Lo mío es confiar en Él con los resultados.
+Ya conté que muchas veces no sé a quién le llega lo que comparto: los libros, los audiolibros, las reflexiones, las predicaciones, los estados de WhatsApp. En cierto sentido, me parezco al naranjo de enfrente. No necesito controlar el destino de cada fruto para que tenga sentido darlo. Me gustaría que lo que comparto llegue a alguien y lo acerque a Jesús. Pero eso no está en mis manos. Lo mío es confiar en Él con los resultados.
 
 Un día me di cuenta de algo más. El naranjo no sólo da naranjas. También da sombra. Y cuando cae granizo, protege los autos que están debajo. Aunque nadie juntara una sola naranja, el árbol seguiría sirviendo. Y no sabe todas las maneras en que ayuda a lo que tiene alrededor.
 
@@ -28,13 +26,13 @@ Es fácil convertir la vida cristiana en una lista de cosas para mejorar. Más p
 
 No buscar la paciencia, sino buscar a Jesús. No angustiarme por cuánto fruto doy ni por quién lo recibe, sino quedarme unido a Él.
 
-El hermano Lorenzo vio en un árbol de invierno la providencia y el poder de Dios. Después vivió más de cuarenta años conversando con Él mientras trabajaba en la cocina.
-
-Jesús explicaba muchas cosas con la naturaleza. Y la Biblia está llena de ejemplos tomados de la creación. De Salomón se cuenta que habló de los árboles, desde el cedro del Líbano hasta la hierba que crece en la pared, y de los animales, las aves, los reptiles y los peces.
+Con las señales me pasa algo parecido. Jesús explicaba muchas cosas con la naturaleza, y la Biblia está llena de ejemplos tomados de la creación. De Salomón se cuenta que habló de los árboles, desde el cedro del Líbano hasta la hierba que crece en la pared, y de los animales, las aves, los reptiles y los peces.
 
 No creo que haya que andar buscando señales en cada árbol. Pero tampoco quiero cerrar esa puerta, porque es una de las formas en que Dios se comunica.
 
-Y hay algo que fui aprendiendo. Cuanto más quiero que Dios me hable, cuanto más ansioso estoy, menos pasa. Los flechazos al corazón no llegan cuando los persigo. Llegan como sorpresas, cuando no los espero.
+Y hay algo que fui aprendiendo. Cuanto más quiero que Dios me hable, cuanto más ansioso estoy, menos pasa. Los flechazos al corazón no llegan cuando los persigo. Llegan como sorpresas, cuando no los espero. Igual que el fruto del árbol.
+
+El hermano Lorenzo vio en un árbol de invierno la providencia y el poder de Dios. Después vivió más de cuarenta años conversando con Él mientras trabajaba en la cocina, sin buscar nada extraordinario.
 
 Al principio de este libro, yo le pedía a Jesús luces violetas, murciélagos y ramas gigantes. Necesitaba saber que me escuchaba.
 

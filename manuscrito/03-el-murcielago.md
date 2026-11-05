@@ -18,4 +18,4 @@ Con el jacarandá había dicho «no te pido luces violetas». Ahora había dicho
 
 Yo usaba esas frases como ejemplos de algo absurdo, algo que no le iba a exigir. Y Jesús me tomaba la palabra en lo que yo decía al pasar. A mí me parece que me estaba mostrando que me escuchaba palabra por palabra. Incluso lo que yo mismo no tomaba en serio.
 
-Hay un detalle que no quiero pasar por alto. Casi lo agarro con la mano, pensando que era tierra. Lo que yo viví como una respuesta estaba en el piso, a mis pies, y casi lo confundo con suciedad.
+Hay un detalle que no quiero pasar por alto. Lo que yo viví como una respuesta estaba en el piso, a mis pies. Y casi lo levanto pensando que era un terrón de tierra.

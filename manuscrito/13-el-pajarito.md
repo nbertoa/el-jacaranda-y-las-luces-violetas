@@ -2,7 +2,7 @@
 
 En la casa donde vivíamos antes, encontramos un pajarito en el suelo. Al parecer, el árbol había tenido algún problema, y el pajarito se había caído. Era bebé. No podía volar.
 
-Lo trajimos a casa. Lo pusimos en una caja. Le dimos pan con leche.
+Lo trajimos a casa. Lo pusimos en una caja. Le dimos pan con leche y agua.
 
 Mientras tanto, yo le decía a Jesús que Él cuidaba a los pajaritos y los alimentaba, como dice la Biblia. Que Él se encargaba de su cuidado. Que seguramente lo iba a cuidar.
 
@@ -18,7 +18,7 @@ Le dije que Él lo podría haber cuidado. Que nosotros habíamos hecho lo que pu
 
 Mientras le hablaba de esto, empecé a darme cuenta de que había pajaritos cerca de mí. Y que cuando yo caminaba, volaban hacia el lado en que yo iba.
 
-Eso me hizo darme cuenta de algo. Sentí la presencia de Jesús ahí, conmigo.
+Ahí sentí la presencia de Jesús, conmigo.
 
 No hubo respuesta. Pero al menos entendí que me estaba escuchando.
 

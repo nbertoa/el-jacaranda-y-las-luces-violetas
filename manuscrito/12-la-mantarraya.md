@@ -6,19 +6,15 @@ Nos fuimos de viaje en familia a Brasil, a Maceió. Estábamos en la playa. Pis�
 
 Yo siempre la llamé mantarraya. Pero las mantarrayas no tienen aguijón. Lo que me picó fue una raya, de las que tienen una espina en la cola.
 
-Fue el dolor más horrible que tuve en toda mi vida. Durante tres horas.
+Fueron las tres horas más horribles y dolorosas de toda mi vida. Hasta que fuimos a un hospital en Maceió, me pusieron una inyección y se me pasó.
 
 Después supe que el agua bien caliente suele aliviar mucho ese dolor, aunque igual hay que ir al médico. Si lo hubiera sabido, habría sabido mejor cómo manejarlo. Pero no lo sabía.
-
-Fuimos a un hospital en Maceió. Me pusieron una inyección y se me pasó. Pero fueron las tres horas más horribles y dolorosas que pasé.
 
 Por un lado, estaba agradecido. Agradecido de que no le hubiera pasado nada a ninguno de mis hijos, ni a mi esposa.
 
 Pero por otro lado estaba enojado. Y se lo dije a Jesús. Le decía: «¿Cómo no corriste esa raya? ¿Cómo no usaste tu poder? ¿Por qué no la espantaste?».
 
 Es algo que, hasta el día de hoy, no tiene respuesta.
-
-Más adelante voy a contar una vez en que dos perros iban a atacar a nuestra perra, y se frenaron cuando le pedí ayuda a Jesús. Ahí los animales se quedaron quietos. Acá, la raya no se movió.
 
 No tengo una explicación que cierre. Podría decir que algo bueno salió de eso, que aprendí algo. No lo sé. No lo voy a inventar.
 

@@ -14,7 +14,7 @@ Ahí vino el flechazo al corazón. A través de ese árbol, sentí que Jesús me
 
 Lo que más me impacta, todavía hoy, es que el color lo elegí yo. Lo dije como ejemplo de algo que no le iba a pedir. Y la respuesta llegó exactamente en ese color.
 
-Obviamente, ese árbol ya estaba ahí. El jacarandá florece cada primavera, y muchas veces lo hace antes de que le salgan las hojas nuevas. Por eso no se ve un árbol verde con algunas flores, sino una copa entera violeta. Jesús no hizo aparecer nada. Usó un árbol y su proceso de florecer para que yo me diera cuenta de que Él era real.
+Obviamente, ese árbol ya estaba ahí. El jacarandá florece cada primavera, y muchas veces lo hace antes de que le salgan las hojas nuevas. Por eso no se ve un árbol verde con algunas flores, sino una copa entera violeta. Jesús no hizo aparecer nada. Yo lo viví así: usó un árbol y su proceso de florecer para que me diera cuenta de que Él era real.
 
 Alguien podría decir que fue casualidad. Es cierto que no lo puedo probar. Para mí fue el comienzo de todo.
 

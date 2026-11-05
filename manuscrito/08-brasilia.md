@@ -20,7 +20,7 @@ Otra vez, la adrenalina. Esa noche estuve mucho más atento. Más atento en la o
 
 No sé por qué aparecieron esos animales esas noches. Pero yo lo viví así: Jesús estaba usando la naturaleza para despertarme. Para que me mantuviera atento. Para que no bajara la guardia.
 
-Hasta ese momento, la naturaleza me había hablado con cosas lindas: flores violetas, una paloma. Esta vez me habló asustándome. Pero los murciélagos no me hicieron nada, y la víbora tampoco. Solo me despertaron.
+Muchas veces, la naturaleza me había hablado con cosas lindas: flores violetas, una paloma. Esta vez me habló asustándome. Pero los murciélagos no me hicieron nada, y la víbora tampoco. Sólo me despertaron.
 
 Me recuerda a Getsemaní. La última noche antes de la cruz, Jesús les pidió a Pedro, a Santiago y a Juan que velaran con Él mientras oraba. Volvió y los encontró dormidos. Le dijo a Pedro: «¿Así que no pudieron velar conmigo ni una hora? Velen y oren. El espíritu está dispuesto, pero la carne es débil».
 

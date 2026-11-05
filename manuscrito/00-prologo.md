@@ -6,7 +6,7 @@ Todos los años, cuando florecen los jacarandás, una amiga me escribe. Ve los �
 
 A mí me pasa lo mismo. En diagonal a mi casa hay un árbol de flores violetas. Cada vez que florece, lo recibo como un pequeño mimo de Jesús. Me recuerda aquella primera experiencia, cuando recién lo estaba conociendo.
 
-Este año, además, estuve meditando en *La práctica de la presencia de Dios*, el libro que recoge las conversaciones del hermano Lorenzo, un monje que vivió en París hace más de trescientos años. En la primera conversación aparece cómo se convirtió.
+Este año, además, estuve meditando en *La práctica de la presencia de Dios*, el libro que recoge las conversaciones del hermano Lorenzo, un hermano carmelita que vivió en París hace más de trescientos años. En la primera conversación aparece cómo se convirtió.
 
 Tenía dieciocho años. Era invierno. Vio un árbol sin hojas, y pensó que dentro de poco las hojas iban a volver, y después las flores y el fruto. En ese árbol pelado vio la providencia y el poder de Dios. Esa visión nunca más se le borró del alma. Encendió en él un amor por Dios tan grande que, más de cuarenta años después, no sabía si había crecido.
 

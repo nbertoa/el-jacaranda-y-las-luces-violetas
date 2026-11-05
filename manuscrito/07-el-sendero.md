@@ -2,11 +2,9 @@
 
 Fuimos al sur con mi esposa, a Villa La Angostura, Bariloche, toda esa zona. Nos habían dicho que los senderos eran muy lindos.
 
-Fuimos a un sendero que se metía en un bosque. Mientras caminaba, iba orando. Y le iba diciendo a Jesús: «Esto es como la meditación bíblica».
+Entramos en un sendero que se metía en un bosque. Mientras caminaba, iba orando. Y le iba diciendo a Jesús: «Esto es como la meditación bíblica».
 
 Uno se va adentrando en la historia, como en un bosque. Puede elegir si se adentra poco o mucho. Pero si pasa el tiempo suficiente meditando, mirando los detalles, viviendo la experiencia, realmente llega a sacar joyas.
-
-Eso iba meditando mientras caminaba por un sendero muy lindo.
 
 En un momento, el sendero se empezó a meter en una especie de bosque más oscuro. Pero era muy atractivo.
 
