@@ -56,7 +56,7 @@ El prólogo aclara una vez que no es una voz audible y que no se puede probar ca
 
 - Se suma al prólogo la frase siguiente de *El Camino a Cristo*: «Pero esto no basta; necesitamos abrirle nuestro corazón».
 - Se saca del epílogo la frase «cuanto más ansioso estoy, menos pasa». Queda que los flechazos llegan como sorpresas.
-- Lugares: los murciélagos y la víbora fueron en Brasilia. La rama, los hongos y los jabalíes, en Los Quebrachos, predio adventista en Córdoba. El orden entre Brasilia y Los Quebrachos no está confirmado, así que el libro los compara sin afirmar una secuencia.
+- Lugares: los murciélagos y la víbora fueron en Brasilia. La rama, los hongos y los jabalíes, en Los Quebrachos, predio adventista en Córdoba. Brasilia fue años antes que Los Quebrachos, así que el recorrido de la oración (de dormirse en las vigilias a estar en paz) es cronológico.
 
 # ¿Qué falta decidir?
 

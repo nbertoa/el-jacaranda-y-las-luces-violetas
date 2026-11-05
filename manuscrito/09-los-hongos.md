@@ -32,6 +32,6 @@ Me parece que así fue mi relación con la oración durante esos meses. Algo est
 
 Los discípulos de Jesús lo veían orar, muchas veces solo, de madrugada. Y un día uno le pidió: «Señor, enséñanos a orar». Veían algo en la forma en que Jesús oraba, y lo pidieron. Eso fue lo que hice yo.
 
-Cuando pongo este testimonio al lado del de Brasilia, veo la misma lucha. La oración siempre me costó. Jesús no me dejó solo en eso. Me despertó cuando me dormía. Me mostró lo que me faltaba. Y después me mostró que ya estaba.
+Cuando pongo este testimonio al lado del de Brasilia, años antes, veo un recorrido. La oración siempre me costó. Jesús no me dejó solo en eso. Me despertó cuando me dormía. Me mostró lo que me faltaba. Y después me mostró que ya estaba.
 
 ¿Qué está creciendo bajo tierra en mí, antes de que asome?
