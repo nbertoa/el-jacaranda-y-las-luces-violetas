@@ -18,14 +18,14 @@ El perro se paró en medio de la calle. Y se fue.
 
 La primera vez fue un grito en medio del caos. La segunda fue un comentario. Me parece que eso es lo que el hermano Lorenzo llamaba la práctica de la presencia de Dios. Saber que Él está, y hablarle con naturalidad. No sólo cuando todo se desborda. También en una vereda cualquiera, paseando a la perra.
 
-Una noche, Jesús cruzaba el lago con sus discípulos y se había dormido en la barca. Se levantó una tormenta fuerte. Los discípulos lo despertaron gritando: «Maestro, ¿no te importa que nos hundamos?». Jesús se levantó, le habló al viento y al mar, y todo se calmó.
+Una noche, Jesús cruzaba el lago con sus discípulos y se había dormido en la barca. Se levantó una tormenta fuerte. Los discípulos lo despertaron gritando: «Maestro, ¿no te importa que nos hundamos?». Jesús se levantó, le habló al viento y al mar, y todo se calmó. Después les preguntó por qué tenían tanto miedo, y si todavía no tenían fe.
 
-Me llama la atención que Jesús calmó la tormenta igual. No esperó a que tuvieran más fe para ayudarlos. Primero los ayudó.
+Me llama la atención el orden. Jesús no esperó a que tuvieran más fe para ayudarlos. Primero los ayudó. Después les hizo la pregunta.
 
 Eso me pasó a mí. La primera vez grité, con miedo, y Jesús me ayudó. La segunda vez estaba tranquilo, y Jesús me ayudó igual.
 
-Ya conté lo de la mantarraya. Ahí no se movió nada. Acá los perros se frenaron. No tengo una explicación para la diferencia. No voy a decir que acá oré mejor, o que allá me faltó fe. No creo que sea así. Las dos cosas son parte de mi historia con Él.
+Ya conté lo de la raya en Maceió. Ahí no se movió nada. Acá los perros se frenaron. No tengo una explicación para la diferencia. No voy a decir que acá oré mejor, o que allá me faltó fe. No creo que sea así. Las dos cosas son parte de mi historia con Él.
 
-Lo que más me alegra de este testimonio es que Nikito estaba ahí. No le conté que Jesús responde. Lo vio.
+Lo que más me alegra de este testimonio es que Nikito estaba ahí. No se lo tuve que contar.
 
 ¿Le hablo a Jesús sólo cuando grito?

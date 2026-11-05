@@ -10,6 +10,8 @@ Le seguíamos dando agua y pan, pero el pajarito no comía. Había estado al sol
 
 Pero el pajarito terminó muriendo.
 
+El pan con leche no es un buen alimento para un pichón. Nosotros hicimos lo que sabíamos en ese momento. No sé si eso cambió algo.
+
 Me fui a caminar. Y le hablé a Jesús. Estaba molesto.
 
 Le dije que Él lo podría haber cuidado. Que nosotros habíamos hecho lo que pudimos. Que por qué lo había dejado morir, si en su Palabra habla de los pajaritos, y dice que los cuida y que los alimenta.
@@ -24,7 +26,7 @@ Jesús dijo: «Miren las aves del cielo, que no siembran ni cosechan ni guardan 
 
 Y en otro momento dijo: «¿No se venden dos gorriones por una moneda? Y ni uno de ellos cae a tierra sin el Padre de ustedes».
 
-Durante mucho tiempo leí esa frase como una promesa de que los pájaros no caen. Pero no dice eso. Dice que no caen sin el Padre. Los gorriones caen. Jesús lo sabía. Lo que dice es que no caen solos.
+Durante mucho tiempo leí esa frase como una promesa de que los pájaros no caen. Pero no dice eso. Dice que no caen sin el Padre. Los gorriones caen, y Jesús lo sabía. Yo lo leo así: no caen solos.
 
 No quiero usar esa frase para cerrar lo que me pasó, como si lo explicara. No lo explica. Me molestó que el pajarito muriera. Pero ese día, en vez de una respuesta, recibí compañía. Y la compañía llegó con alas.
 

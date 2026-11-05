@@ -26,8 +26,26 @@ Segundo borrador, revisado el 4 de noviembre de 2026 para que los testimonios se
 ## ¿Qué falta revisar?
 
 - **Citas bíblicas:** son traducciones de trabajo, hechas para el borrador. Nico las revisa contra el hebreo y el griego y las fija letra por letra.
-- **Cita de *El Camino a Cristo*:** confirmar la página en la edición de Nico.
-- **Árbol del vecino (cap. 5):** la pata de vaca va sólo como ejemplo. Si Nico identifica el árbol, se ajusta.
+- **Cita de *El Camino a Cristo*:** es auténtica (capítulo 11, CC 93.1). Confirmar la página en la edición de Nico.
+- **Árbol del vecino (cap. 5):** sin identificar; el capítulo no nombra especie.
 - **Viento (cap. 11):** falta saber dónde y cuándo fue el retiro.
-- **Pajarito (cap. 13):** hoy se recomienda no darles pan con leche a los pichones. No se mencionó en el capítulo; Nico decide si entra.
 - **Hechos personales:** cada testimonio se escribió sólo con lo que Nico contó. Si algún detalle no es exacto, se corrige.
+
+## ¿Qué se aplicó de la auditoría de ChatGPT?
+
+La auditoría está en [`revision/auditoria-chatgpt-2026-11-04.md`](../revision/auditoria-chatgpt-2026-11-04.md). Se aplicó lo que no requiere decisión de Nico:
+
+- La «mantarraya» pasó a ser una raya, con la aclaración del nombre. El agua caliente alivia, pero no reemplaza al médico.
+- El pan con leche se nombra, sin decir que causó la muerte del pajarito.
+- Tomás, la tormenta, Caná, Jeremías 29, el sembrador y Juan 15 se citan con su contexto. Se sacó Marcos 4 del epílogo.
+- El prólogo explica que «Jesús me habló» es una impresión interior y que no se puede probar cada caso. Se ajustaron las frases que afirmaban de más.
+- El epílogo se acortó y cierra con «Me alcanza con saber que Jesús está conmigo».
+- Se agregó al prólogo que Nico dibuja árboles con los chicos.
+
+## ¿Qué decisiones quedan para Nico?
+
+1. **Los hongos:** ¿por qué un hongo solo significó que estaba todo completo?
+2. **El subtítulo y los capítulos del clavel y las mascotas:** ¿se ajusta el subtítulo o esos capítulos pasan a ser breves?
+3. **La idea final:** ¿el libro también pasa de interpretar todo como mensaje a disfrutar la compañía de Jesús sin necesitar una enseñanza?
+4. **Señales que no llegaron:** ¿hubo veces en que pediste una y no vino?
+5. **Más detalles reales** para el sendero, la paloma y la perra perdida, si los recordás.

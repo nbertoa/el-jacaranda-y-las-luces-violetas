@@ -24,7 +24,7 @@ Cuando vi ese hongo solo, vino el flechazo otra vez: «Ahora también está la v
 
 Fue un gran alivio.
 
-Los hongos que vemos son sólo una parte pequeña de algo mucho más grande. El hongo de verdad vive bajo tierra, como una red de hilos finísimos que se extiende por el suelo. Lo que asoma es apenas su fruto, y por eso muchas veces aparece en fila o en círculo, siguiendo el borde de esa red. Aparece unos días y desaparece. Pero lo que lo sostiene sigue ahí abajo, invisible.
+Los hongos que vemos son sólo una parte pequeña de algo mucho más grande. El hongo de verdad vive bajo tierra, como una red de hilos finísimos que se extiende por el suelo. Lo que asoma es apenas su fruto. A veces aparece en fila o en círculo, siguiendo esa red, una raíz o madera enterrada. Aparece unos días y desaparece. Pero lo que lo sostiene sigue ahí abajo, invisible.
 
 Me parece que así fue mi relación con la oración durante esos meses. Algo estaba creciendo bajo tierra, sin que yo lo viera. Hasta que asomó.
 

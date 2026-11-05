@@ -16,6 +16,8 @@ La primera vez, yo podía pensar que era casualidad. Una paloma pasa, se posa en
 
 Y me parece que tiene algo de ternura. Yo estaba empezando. Tenía miedo de estar inventándome todo. Jesús no me reprochó que le pidiera una señal. Me mandó una paloma. Y después me la mandó de nuevo.
 
-Me recuerda a Tomás. No estaba cuando Jesús se apareció a los demás discípulos, y dijo que no iba a creer si no veía. Ocho días después, Jesús volvió. Le mostró las manos. Volvió por él.
+Me recuerda a Tomás. No estaba cuando Jesús se apareció a los demás discípulos, y dijo que no iba a creer si no veía. Ocho días después, Jesús volvió y le mostró las manos. Y también le dijo que son felices los que creen sin haber visto.
 
-¿Cuántas veces Jesús vuelve, solo para que uno deje de dudar?
+Las dos cosas son verdad. Jesús atendió la necesidad de Tomás. Y le mostró que había algo más allá de ver. En ese momento, a mí me pasaba lo primero: necesitaba ver. Lo segundo vino después.
+
+¿Hasta cuándo necesité ver para creer que me escuchaba?

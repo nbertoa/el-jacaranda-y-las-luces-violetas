@@ -22,6 +22,8 @@ Me parece que eso tiene que ver con algo que hacía Jesús. Cuando resucitó a L
 
 Jesús sabía que hay respuestas que no son sólo para el que pide. Son para los que están mirando.
 
-Si al Padre le importa un gorrión, me parece que también le importan la perra de una familia y la gata de un chico. Y, sobre todo, la confianza de ese chico.
+Sé que muchas veces un chico ora por su mascota y la mascota no vuelve. El pajarito no sobrevivió. No tengo una respuesta para esa diferencia, y no quiero que estos testimonios suenen a una fórmula.
+
+Pero si al Padre le importa un gorrión, me parece que también le importan la perra de una familia y la gata de un chico. Y, sobre todo, la confianza de ese chico.
 
 ¿Qué ven mis hijos cuando oro?

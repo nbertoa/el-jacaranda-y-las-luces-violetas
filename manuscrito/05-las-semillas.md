@@ -18,8 +18,6 @@ Ese árbol no apunta. No elige dónde cae cada semilla. Las suelta, y salen para
 
 Entendí que no tenía que dirigir lo que comparto a tal o cual persona. Tenía que soltarlo como una botella con un mensaje que uno tira al mar. Y dejar que el mar se ocupe de que llegue al destino correcto.
 
-En Eclesiastés hay una frase que dice algo muy parecido: «Lanza tu pan sobre las aguas, porque después de muchos días lo vas a encontrar».
-
-Y Jesús contó la parábola del sembrador. El sembrador sale a sembrar y tira la semilla a lo ancho. Una parte cae en el camino, otra entre piedras, otra entre espinos, otra en buena tierra. Siempre me llamó la atención que no elige. No pone semilla por semilla sólo en la tierra buena. Tira. Parece un desperdicio. Pero así siembra.
+Jesús contó la parábola del sembrador. El sembrador sale a sembrar, y la semilla cae en el camino, entre piedras, entre espinos y en buena tierra. La parábola no habla de cómo elige dónde sembrar. Pero cuando la leo, me imagino a alguien que siembra a lo ancho, sin poder controlar dónde cae cada semilla. Y siembra igual.
 
 ¿Cuánto de lo que suelto está cayendo en lugares que nunca voy a ver?

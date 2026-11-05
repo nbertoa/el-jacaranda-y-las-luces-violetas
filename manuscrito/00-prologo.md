@@ -1,5 +1,7 @@
 # Prólogo: ¿Puede Dios hablar a través de un árbol?
 
+Con los árboles me pasa algo particular. Cuando dibujo con chicos, casi siempre termino dibujando árboles. Me sale solo.
+
 Todos los años, cuando florecen los jacarandás, una amiga me escribe. Ve los árboles violetas y se acuerda de algo que le conté hace mucho: la primera vez que Jesús me habló a través de un árbol. Me lo recuerda cada primavera. Este año no fue la excepción.
 
 A mí me pasa lo mismo. En diagonal a mi casa hay un árbol de flores violetas. Cada vez que florece, lo recibo como un pequeño mimo de Jesús. Me recuerda aquella primera experiencia, cuando recién lo estaba conociendo.
@@ -16,9 +18,11 @@ Ellen G. White lo dice en una frase de *El Camino a Cristo*: «Dios nos habla po
 
 Y Jesús enseñaba así. Señalaba. «Miren las aves del cielo». «Fíjense en los lirios del campo». Hablaba de semillas, de higueras, del viento. Miraba lo de todos los días y ahí mostraba al Padre.
 
-Este libro es eso: testimonios. Un jacarandá, una paloma, un murciélago, una rama, unos hongos, unos jabalíes, un viento que llegó de golpe. Los cuento como pasaron. Lo que entendí en cada caso va como lo que me pareció a mí, hablando con Jesús.
+Este libro es eso: testimonios. Los cuento como pasaron.
 
-Hay también dos testimonios que no cierran. Uno es un dolor que no entiendo. El otro, un pajarito que no sobrevivió. No les voy a inventar un final feliz. Creo que un libro sobre cómo Dios habla también tiene que tener lugar para cuando parece que no responde.
+Quiero ser claro con algo desde el principio. Cuando digo que Jesús me habló, no hablo de una voz que escuché con los oídos. Es una impresión fuerte, adentro, que yo llamo un flechazo al corazón. No puedo probar que cada una de estas cosas fue obra de Él. Un jacarandá florece en primavera, una paloma se posa, una rama se cae. Lo que sí puedo contar es lo que pasó, y cómo lo viví hablando con Jesús.
+
+No todos los testimonios terminan con una respuesta. Algunos terminan con una pregunta, y así los dejo.
 
 Al principio de este camino, yo le pedía señales a Jesús. Al final, frente a un naranjo agrio que está enfrente de mi casa, ya no le pido nada. Sólo miro. Y Jesús me acompañó en las dos cosas.
 

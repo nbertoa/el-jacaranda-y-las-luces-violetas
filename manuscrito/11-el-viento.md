@@ -4,7 +4,7 @@ Estábamos en otra reunión de oración de Momentos a Solas con Cristo. Éramos 
 
 Yo estaba orando solo, y veía que hacía frío. A mí el frío nunca me complicó demasiado. Pero veía que probablemente los demás la estaban pasando mal.
 
-Así que se lo comenté a Jesús. No le estaba pidiendo nada. Le estaba comentando que la gente podía tener frío, que hiciera algo.
+Así que se lo comenté a Jesús. No era un pedido formal. Le comenté, como a un amigo, que la gente podía tener frío, que hiciera algo.
 
 Terminó ese bloque de oración. Fuimos y nos sentamos para recibir la próxima instrucción.
 
@@ -22,8 +22,8 @@ Fue el cariño de Dios, usando la naturaleza para que la reunión de oración se
 
 Sé que existen vientos cálidos que llegan de golpe, con cielo despejado. En Córdoba conocemos el viento norte. Puede que tenga una explicación así. Pero lo que me sigue asombrando no es el viento. Es el momento.
 
-Lo que más me llama la atención de este testimonio es que yo no pedí. Comenté. Me parece que eso es lo que el hermano Lorenzo llamaba la práctica de la presencia de Dios: conversar con Él durante el día, como con alguien que está al lado.
+Lo que más me llama la atención de este testimonio es la forma en que le hablé. No fue una oración solemne. Fue un comentario, de esos que uno le hace al que tiene al lado. Me parece que eso es lo que el hermano Lorenzo llamaba la práctica de la presencia de Dios: conversar con Él durante el día.
 
-Me recuerda a las bodas de Caná. La madre de Jesús no le pidió un milagro. Solo le comentó: «No tienen vino». Y Él hizo algo.
+Me recuerda a las bodas de Caná. La madre de Jesús le comentó: «No tienen vino». Jesús le respondió que todavía no había llegado su hora. Y aun así, hizo algo.
 
 ¿Cuántas cosas le comento a Jesús sin darme cuenta de que me está escuchando?
