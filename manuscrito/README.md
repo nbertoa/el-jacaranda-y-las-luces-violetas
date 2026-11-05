@@ -42,10 +42,12 @@ La auditoría está en [`revision/auditoria-chatgpt-2026-11-04.md`](../revision/
 - El epílogo se acortó y cierra con «Me alcanza con saber que Jesús está conmigo».
 - Se agregó al prólogo que Nico dibuja árboles con los chicos.
 
-## ¿Qué decisiones quedan para Nico?
+## ¿Qué respondió Nico?
 
-1. **Los hongos:** ¿por qué un hongo solo significó que estaba todo completo?
-2. **El subtítulo y los capítulos del clavel y las mascotas:** ¿se ajusta el subtítulo o esos capítulos pasan a ser breves?
-3. **La idea final:** ¿el libro también pasa de interpretar todo como mensaje a disfrutar la compañía de Jesús sin necesitar una enseñanza?
-4. **Señales que no llegaron:** ¿hubo veces en que pediste una y no vino?
-5. **Más detalles reales** para el sendero, la paloma y la perra perdida, si los recordás.
+- **Los hongos:** el hongo solo era el que faltaba; el séptimo había crecido justo ahí. Integrado en el capítulo 9.
+- **La idea final:** no hay que ir buscando señales en la naturaleza, pero tampoco cerrar esa puerta, porque es una forma en que Dios se comunica (Jesús enseñaba con la naturaleza, Salomón meditaba en ella). Cuanto más ansioso está uno porque Dios hable, menos pasa: los flechazos al corazón son sorpresas. Integrado en el epílogo.
+- **Detalles del sendero, la paloma y la perra:** no recuerda más.
+
+## ¿Qué queda pendiente?
+
+- **El clavel y las mascotas:** en esos capítulos Dios no habla a través de la naturaleza, sino que responde una oración sobre animales o guía un regalo. Se dejan como están salvo que Nico quiera cambiar el subtítulo.

@@ -20,7 +20,9 @@ En otro retiro espiritual volví al mismo lugar. Fui al sitio exacto donde habí
 
 En lugar de seis hongos, había uno solo.
 
-Cuando vi ese hongo solo, vino el flechazo otra vez: «Ahora también está la vigilia. Ahora entendiste. Ahora está todo completo».
+Lo entendí así: ése era el hongo que faltaba. Justo ahí había crecido el séptimo.
+
+Vino el flechazo otra vez: «Ahora también está la vigilia. Ahora entendiste. Ahora está todo completo».
 
 Fue un gran alivio.
 
