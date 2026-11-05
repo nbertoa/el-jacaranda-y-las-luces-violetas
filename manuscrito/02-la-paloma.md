@@ -19,5 +19,3 @@ Y me parece que tiene algo de ternura. Yo estaba empezando. Tenía miedo de esta
 Me recuerda a Tomás. No estaba cuando Jesús se apareció a los demás discípulos, y dijo que no iba a creer si no veía. Ocho días después, Jesús volvió y le mostró las manos. Y también le dijo que son felices los que creen sin haber visto.
 
 Las dos cosas son verdad. Jesús atendió la necesidad de Tomás. Y le mostró que había algo más allá de ver. En ese momento, a mí me pasaba lo primero: necesitaba ver. Lo segundo vino después.
-
-¿Hasta cuándo necesité ver para creer que me escuchaba?

@@ -82,8 +82,6 @@ Me recuerda a Tomás. No estaba cuando Jesús se apareció a los demás discípu
 
 Las dos cosas son verdad. Jesús atendió la necesidad de Tomás. Y le mostró que había algo más allá de ver. En ese momento, a mí me pasaba lo primero: necesitaba ver. Lo segundo vino después.
 
-¿Hasta cuándo necesité ver para creer que me escuchaba?
-
 
 # Capítulo 3: ¿Un murciélago en el piso de mi casa?
 
