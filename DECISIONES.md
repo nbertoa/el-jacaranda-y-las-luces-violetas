@@ -58,6 +58,19 @@ El prólogo aclara una vez que no es una voz audible y que no se puede probar ca
 - Se saca del epílogo la frase «cuanto más ansioso estoy, menos pasa». Queda que los flechazos llegan como sorpresas.
 - Lugares: los murciélagos y la víbora fueron en Brasilia. La rama, los hongos y los jabalíes, en Los Quebrachos, predio adventista en Córdoba. Brasilia fue años antes que Los Quebrachos, así que el recorrido de la oración (de dormirse en las vigilias a estar en paz) es cronológico.
 
+## D-015 — Ajustes finales de Nico (5 de noviembre de 2026)
+
+- Cada capítulo lleva número: «Capítulo 1: …». Prólogo y epílogo, sin número.
+- Títulos orientados a cada testimonio, siempre como pregunta. El epílogo pasa a ser «¿El naranjo se esfuerza por dar fruto?».
+- Capítulos 1 y 2, sin pregunta final.
+- Perros: Nico no gritó; dijo «Jesús, ayúdame» en voz audible.
+- Hongos: Nico sigue siendo orador de Momentos a Solas con Cristo. El capítulo cierra con el alivio y con lo que vio en los hongos: sus fortalezas y lo que necesitaba mejorar. Sin la explicación biológica ni los agregados posteriores.
+- Jabalíes: fue en el mismo predio de Los Quebrachos que los hongos, no en el mismo lugar exacto. Sin «yo estaba orando en voz alta».
+
+## D-016 — Libro aprobado
+
+Nico aprobó el libro el 5 de noviembre de 2026. La versión aprobada es la de `manuscrito/` y su unión en `edicion/el-jacaranda-y-las-luces-violetas.md`.
+
 # ¿Qué falta decidir?
 
-- Nada pendiente del lado de las decisiones. Quedan las verificaciones de `INVESTIGACION.md` y las traducciones bíblicas propias.
+- Nada. Antes de publicar quedan las traducciones bíblicas propias y la página de *El Camino a Cristo* en la edición de Nico.

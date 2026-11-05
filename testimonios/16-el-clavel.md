@@ -1,5 +1,7 @@
 # 16 · El clavel
 
+> Fuera del libro por decisión de Nico (D-010): en este testimonio Dios no habló a través de la naturaleza.
+
 **Parte:** Cuidado en lo chico · **Con quién:** la esposa de Nico
 
 ## ¿Qué pasó?

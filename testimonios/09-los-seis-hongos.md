@@ -1,10 +1,10 @@
 # 09 · Los seis hongos y el hongo solo
 
-**Parte:** Velar y orar · **Lugar:** retiros espirituales de Momentos a Solas con Cristo, en el mismo lugar las dos veces
+**Parte:** Velar y orar · **Lugar:** retiros espirituales de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo lugar las dos veces
 
 ## ¿Qué pasó?
 
-Yo era orador del ministerio Momentos a Solas con Cristo, que tiene seis momentos y una reunión de oración.
+Soy orador del ministerio Momentos a Solas con Cristo, que tiene seis momentos y una reunión de oración.
 
 Los momentos del uno al seis los daba como un pez en el agua. Me sentía capacitado, con testimonios en cada uno, conocedor del contenido y con autoridad para enseñarlo, porque lo vivía. Pero la reunión de oración siempre me costó. No me gustaba, y no me sentía cómodo enseñándola porque no era algo que yo viviera.
 

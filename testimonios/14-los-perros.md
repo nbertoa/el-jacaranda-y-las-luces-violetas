@@ -1,12 +1,12 @@
 # 14 · Los perros que se frenaron
 
-**Parte:** Cuidado en lo chico · **Con quién:** Nikito, el hijo de Nico, y la perra de la familia
+**Parte:** Hablarle como al que va al lado · **Con quién:** Nikito, el hijo de Nico, y la perra de la familia
 
 ## ¿Qué pasó?
 
 Habíamos sacado a pasear a la perra con mi hijo Nikito. De repente vinieron dos perros a atacarla y molestarla. Yo hacía malabares para que no la mordieran y para que no le pasara nada a mi hijo.
 
-En un momento dije en voz alta: «Jesús, ayúdame». Los dos perros se quedaron inmóviles, quietos, y se fueron. Me di cuenta, y también mi hijo, de que Jesús maneja la naturaleza. Fue un testimonio para él.
+En un momento dije en voz audible: «Jesús, ayúdame». Los dos perros se quedaron inmóviles, quietos, y se fueron. Me di cuenta, y también mi hijo, de que Jesús maneja la naturaleza. Fue un testimonio para él.
 
 A la semana siguiente salí solo con la perra y apareció uno de esos perros. Siendo consciente de la presencia de Jesús, le dije: «Ahí vienen de nuevo». El perro se paró en medio de la calle y se fue.
 

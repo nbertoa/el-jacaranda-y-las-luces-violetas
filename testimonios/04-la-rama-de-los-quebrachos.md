@@ -1,6 +1,6 @@
 # 04 · La rama de Los Quebrachos
 
-**Parte:** Señales · **Lugar:** retiro espiritual en Los Quebrachos
+**Parte:** Señales · **Lugar:** retiro espiritual en Los Quebrachos, predio adventista en Córdoba
 
 ## ¿Qué pasó?
 

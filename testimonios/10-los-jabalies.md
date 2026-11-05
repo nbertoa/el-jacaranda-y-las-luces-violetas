@@ -1,10 +1,10 @@
 # 10 · Los jabalíes
 
-**Parte:** Velar y orar · **Lugar:** reunión de oración de Momentos a Solas con Cristo, en el mismo lugar de los hongos · **Con quién:** la esposa de Nico
+**Parte:** Velar y orar · **Lugar:** reunión de oración de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo predio que los hongos · **Con quién:** la esposa de Nico
 
 ## ¿Qué pasó?
 
-Estábamos orando con mi esposa y empezamos a escuchar ruidos que venían del monte. Yo estaba orando en voz alta; paré y me puse a conversar con Jesús.
+Estábamos orando con mi esposa y empezamos a escuchar ruidos que venían del monte. Dejé de orar y me puse a conversar con Jesús.
 
 Vimos unos cerdos salvajes, tipo jabalíes, que venían del monte con sus crías. Esos cerdos suelen atacar, pero yo no tenía miedo. Le decía: «Jesús querido, Vos controlás la naturaleza. Nos estás protegiendo; nosotros estamos orando». Estaba disfrutando de verlos y le agradecía por esos cerditos. Me daba cuenta de que eso también era una forma de decirnos: «Estoy con ustedes, me doy cuenta de que están orando».
 

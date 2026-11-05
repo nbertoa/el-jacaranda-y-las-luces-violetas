@@ -1,63 +1,57 @@
 # ¿Cómo se ordena el libro?
 
-Orden tentativo. Se ajusta cuando empiece la escritura.
+Orden final, aprobado el 5 de noviembre de 2026. Las partes son un orden interno: en el libro no tienen páginas propias.
 
-## Prólogo — Dios habla por la creación
+## Prólogo — ¿Puede Dios hablar a través de un árbol?
 
-**¿Cómo nació el libro?**
+- Nico dibuja árboles cuando dibuja con chicos.
+- Una amiga le recuerda cada primavera el testimonio del jacarandá; el árbol violeta en diagonal a su casa hace lo mismo.
+- La conversión del hermano Lorenzo frente a un árbol en invierno, como el flechazo final para escribir.
+- *El Camino a Cristo*: Dios nos habla por la naturaleza, la revelación, su providencia y su Espíritu. «Pero esto no basta; necesitamos abrirle nuestro corazón».
+- «Jesús me habló» es una impresión interior, no una voz audible, y no se puede probar cada caso.
 
-- Todos los años, una amiga de Nico ve los árboles florecidos, se acuerda del testimonio del jacarandá y las luces violetas, y se lo recuerda. Este año no fue la excepción.
-- A Nico le pasa lo mismo: en diagonal a su casa hay un árbol de flores violetas, y cada vez que florece lo vive como un pequeño mimo de Jesús que le recuerda aquella primera experiencia.
-- Meditando en *La práctica de la presencia de Dios*, le resonó la conversión del hermano Lorenzo: a los dieciocho años, en invierno, vio un árbol sin hojas, pensó que volverían las hojas, las flores y el fruto, y recibió una visión de la providencia y el poder de Dios que nunca se le borró (ver [`fuentes/hermano-lorenzo.md`](fuentes/hermano-lorenzo.md)).
-- Eso fue el flechazo final: escribir un libro con las experiencias en que Dios le habló a través de la naturaleza para ayudarlo a comprender, aconsejarlo, hacerlo sentir querido, mimado, protegido y redireccionado.
+## Parte 1 — Señales: «no te voy a pedir…»
 
-**¿Qué más va?**
-
-- La idea de *El Camino a Cristo* sobre las formas en que Dios nos habla: la naturaleza, su providencia, la influencia de su Espíritu y su Palabra (cita a verificar, ver `INVESTIGACION.md`).
-- Para qué este libro: mirar lo cotidiano para que la mirada termine en Dios.
-
-## Parte 1 — «Acá tenés tus luces violetas» (señales)
-
-1. [El jacarandá](testimonios/01-el-jacaranda.md)
-2. [La paloma en la reja](testimonios/02-la-paloma.md)
-3. [El murciélago de Año Nuevo](testimonios/03-el-murcielago-de-ano-nuevo.md)
-4. [La rama de Los Quebrachos](testimonios/04-la-rama-de-los-quebrachos.md)
-
-El patrón «no te voy a pedir…» contado en serie.
+1. ¿Me respondió con un jacarandá? — [testimonio](testimonios/01-el-jacaranda.md)
+2. ¿Por qué volvió la paloma? — [testimonio](testimonios/02-la-paloma.md)
+3. ¿Un murciélago en el piso de mi casa? — [testimonio](testimonios/03-el-murcielago-de-ano-nuevo.md)
+4. ¿Y si se caía una rama gigante? — [testimonio](testimonios/04-la-rama-de-los-quebrachos.md)
 
 ## Parte 2 — Parábolas que caminé
 
-5. [El árbol que dispara semillas](testimonios/05-el-arbol-que-dispara-semillas.md)
-6. [El árbol pelado y el brote](testimonios/06-el-arbol-pelado-y-el-brote.md)
-7. [El sendero de Villa La Angostura](testimonios/07-el-sendero-de-villa-la-angostura.md)
+5. ¿Quién golpeaba mi ventana? — [testimonio](testimonios/05-el-arbol-que-dispara-semillas.md)
+6. ¿Ese árbol pelado era yo? — [testimonio](testimonios/06-el-arbol-pelado-y-el-brote.md)
+7. ¿Qué había al final del sendero? — [testimonio](testimonios/07-el-sendero-de-villa-la-angostura.md)
 
 ## Parte 3 — Velar y orar
 
-8. [Murciélagos y una víbora en Brasilia](testimonios/08-murcielagos-y-vibora-en-brasilia.md)
-9. [Los seis hongos y el hongo solo](testimonios/09-los-seis-hongos.md)
-10. [Los jabalíes](testimonios/10-los-jabalies.md)
-11. [El viento cálido](testimonios/11-el-viento-calido.md)
+8. ¿Murciélagos y una víbora en plena vigilia? (Brasilia) — [testimonio](testimonios/08-murcielagos-y-vibora-en-brasilia.md)
+9. ¿Dónde estaba el séptimo hongo? (Los Quebrachos) — [testimonio](testimonios/09-los-seis-hongos.md)
+10. ¿Jabalíes en medio de la oración? (Los Quebrachos) — [testimonio](testimonios/10-los-jabalies.md)
+11. ¿De dónde vino ese viento cálido? — [testimonio](testimonios/11-el-viento-calido.md)
 
-Juntos cuentan el recorrido de Nico con la oración: de dormirse en las vigilias a estar en paz conversando con Jesús.
+Brasilia fue años antes que Los Quebrachos: de dormirse en las vigilias a estar en paz conversando con Jesús.
 
 ## Parte 4 — Preguntas sin respuesta
 
-12. [La mantarraya en Maceió](testimonios/12-la-mantarraya.md)
-13. [El pajarito](testimonios/13-el-pajarito.md)
+12. ¿Qué me picó en la playa de Maceió? — [testimonio](testimonios/12-la-mantarraya.md)
+13. ¿Por qué murió el pajarito? — [testimonio](testimonios/13-el-pajarito.md)
 
 ## Parte 5 — Hablarle como al que va al lado
 
-14. [Los perros que se frenaron](testimonios/14-los-perros.md)
+14. ¿Por qué se frenaron los perros? — [testimonio](testimonios/14-los-perros.md)
 
-La perra y la gata perdidas (15) y el clavel (16) quedaron fuera del libro: en ellos Dios no habló a través de la naturaleza. Ver D-010.
+La perra y la gata perdidas y el clavel quedaron fuera del libro (D-010). Sus testimonios siguen en `testimonios/`.
 
-## Epílogo — El árbol que no se esfuerza
+## Epílogo — ¿El naranjo se esfuerza por dar fruto?
 
 Sale de la [reflexión del árbol](fuentes/reflexion-del-arbol.md):
 
-- El naranjo agrio de enfrente de casa y las naranjas que nadie junta.
-- La sombra que protege los autos del granizo: el árbol sirve aunque nadie coma su fruto.
-- El limonero que plantó la esposa de Nico hace unos dos años y todavía crece.
-- La quietud aparente del árbol.
-- Controlar o confiar.
-- Cierre: no buscar la paciencia, sino buscar a Jesús.
+- El naranjo agrio y las naranjas que nadie junta: compartir sin controlar el destino.
+- La sombra que protege los autos del granizo.
+- El limonero que plantó la esposa de Nico, que todavía crece.
+- El otro fruto: lo que Jesús hace crecer adentro. Juan 15: permanecer en la vid.
+- No buscar la paciencia, sino buscar a Jesús.
+- No andar buscando señales, pero no cerrar la puerta: los flechazos llegan como sorpresas.
+- El hermano Lorenzo, en la cocina y arreglando sandalias.
+- Cierre: «Me alcanza con saber que Jesús está conmigo».

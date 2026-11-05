@@ -1,5 +1,7 @@
 # 15 · La perra y la gata perdidas
 
+> Fuera del libro por decisión de Nico (D-010): en este testimonio Dios no habló a través de la naturaleza.
+
 **Parte:** Cuidado en lo chico · **Con quién:** los hijos de Nico
 
 ## ¿Qué pasó?
