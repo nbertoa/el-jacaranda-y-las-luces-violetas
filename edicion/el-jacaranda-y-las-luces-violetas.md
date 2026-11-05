@@ -267,17 +267,7 @@ Lo entendí así: ése era el hongo que faltaba. Justo ahí había crecido el s�
 
 Vino el flechazo otra vez: «Ahora también está la vigilia. Ahora entendiste. Ahora está todo completo».
 
-Fue un gran alivio.
-
-Los hongos que vemos son sólo una parte pequeña de algo mucho más grande. El hongo de verdad vive bajo tierra, como una red de hilos finísimos que se extiende por el suelo. Lo que asoma es apenas su fruto. A veces aparece en fila o en círculo, siguiendo esa red, una raíz o madera enterrada. Aparece unos días y desaparece. Pero lo que lo sostiene sigue ahí abajo, invisible.
-
-Me parece que así fue mi relación con la oración durante esos meses. Algo estaba creciendo bajo tierra, sin que yo lo viera. Hasta que asomó.
-
-Los discípulos de Jesús lo veían orar, muchas veces solo, de madrugada. Y un día uno le pidió: «Señor, enséñanos a orar». Veían algo en la forma en que Jesús oraba, y lo pidieron. Eso fue lo que hice yo.
-
-Cuando pongo este testimonio al lado del de Brasilia, años antes, veo un recorrido. La oración siempre me costó. Jesús no me dejó solo en eso. Me despertó cuando me dormía. Me mostró lo que me faltaba. Y después me mostró que ya estaba.
-
-¿Qué está creciendo bajo tierra en mí, antes de que asome?
+Fue un gran alivio. Y pude ver en los hongos el recorrido honesto de lo que me venía pasando: mis virtudes y fortalezas, y las cosas en las que estaba flojo o necesitaba mejorar.
 
 
 # Capítulo 10: ¿Jabalíes en medio de la oración?
