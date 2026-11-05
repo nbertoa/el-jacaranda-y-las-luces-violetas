@@ -410,13 +410,13 @@ No quiero usar esa frase para cerrar lo que me pasó, como si lo explicara. No l
 ¿Qué hago cuando Jesús, en vez de explicarme, simplemente se queda conmigo?
 
 
-# Capítulo 14: ¿Hace falta gritar?
+# Capítulo 14: ¿Le hablo sólo cuando lo necesito?
 
 Habíamos sacado a pasear a la perra con mi hijo Nikito.
 
 De repente vinieron dos perros. Querían atacarla, molestarla. Yo trataba de hacer malabares. Por un lado, que a mi perra no la mordieran. Por otro, que no le pasara nada a mi hijo.
 
-Hasta que en un momento dije, en voz alta: «Jesús, ayúdame».
+Hasta que en un momento dije, en voz audible: «Jesús, ayúdame».
 
 Y los dos perros se quedaron inmóviles. Quietos. Y se fueron.
 
@@ -428,19 +428,19 @@ Esta vez fue distinto. Era consciente de la presencia de Jesús. Y le dije, como
 
 El perro se paró en medio de la calle. Y se fue.
 
-La primera vez fue un grito en medio del caos. La segunda fue un comentario. Me parece que eso es lo que el hermano Lorenzo llamaba la práctica de la presencia de Dios. Saber que Él está, y hablarle con naturalidad. No sólo cuando todo se desborda. También en una vereda cualquiera, paseando a la perra.
+La primera vez fue un pedido de ayuda en medio del apuro. La segunda fue un comentario. Me parece que eso es lo que el hermano Lorenzo llamaba la práctica de la presencia de Dios. Saber que Él está, y hablarle con naturalidad. No sólo cuando todo se desborda. También en una vereda cualquiera, paseando a la perra.
 
 Una noche, Jesús cruzaba el lago con sus discípulos y se había dormido en la barca. Se levantó una tormenta fuerte. Los discípulos lo despertaron gritando: «Maestro, ¿no te importa que nos hundamos?». Jesús se levantó, le habló al viento y al mar, y todo se calmó. Después les preguntó por qué tenían tanto miedo, y si todavía no tenían fe.
 
 Me llama la atención el orden. Jesús no esperó a que tuvieran más fe para ayudarlos. Primero los ayudó. Después les hizo la pregunta.
 
-Eso me pasó a mí. La primera vez grité, con miedo, y Jesús me ayudó. La segunda vez estaba tranquilo, y Jesús me ayudó igual.
+Eso me pasó a mí. La primera vez le pedí ayuda en medio del apuro, y Jesús me ayudó. La segunda vez estaba tranquilo, y Jesús me ayudó igual.
 
 Ya conté lo de la raya en Maceió. Ahí no se movió nada. Acá los perros se frenaron. No tengo una explicación para la diferencia. No voy a decir que acá oré mejor, o que allá me faltó fe. No creo que sea así. Las dos cosas son parte de mi historia con Él.
 
 Lo que más me alegra de este testimonio es que Nikito estaba ahí. No se lo tuve que contar.
 
-¿Le hablo a Jesús sólo cuando grito?
+¿Le hablo a Jesús sólo cuando necesito ayuda?
 
 
 # Epílogo: ¿El árbol se esfuerza por dar fruto?

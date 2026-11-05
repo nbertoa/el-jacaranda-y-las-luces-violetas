@@ -18,7 +18,7 @@ Borrador revisado el 4 de noviembre de 2026, después de dos auditorías externa
 | [`11-el-viento.md`](11-el-viento.md) | ¿Qué hace Dios con un comentario? |
 | [`12-la-mantarraya.md`](12-la-mantarraya.md) | ¿Por qué no la corriste? |
 | [`13-el-pajarito.md`](13-el-pajarito.md) | ¿No era que cuidabas a los pajaritos? |
-| [`14-los-perros.md`](14-los-perros.md) | ¿Hace falta gritar? |
+| [`14-los-perros.md`](14-los-perros.md) | ¿Le hablo sólo cuando lo necesito? |
 | [`15-epilogo.md`](15-epilogo.md) | ¿El árbol se esfuerza por dar fruto? |
 
 El clavel y la perra y la gata perdidas quedaron fuera (ver D-010 en `DECISIONES.md`).
