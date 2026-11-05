@@ -1,10 +1,10 @@
 # Capítulo 10: ¿Jabalíes en medio de la oración?
 
-Fue en otra reunión de oración de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo lugar donde habían estado los hongos.
+Fue en otra reunión de oración de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo predio donde había ocurrido el testimonio de los hongos.
 
 Estábamos orando con mi esposa. Y de la nada, empezamos a escuchar ruidos que venían del monte.
 
-Yo estaba orando en voz alta. Dejé de orar y me puse a conversar con Jesús.
+Dejé de orar y me puse a conversar con Jesús.
 
 Y vimos que del monte venían unos cerdos salvajes, tipo jabalíes, con sus hijitos.
 
