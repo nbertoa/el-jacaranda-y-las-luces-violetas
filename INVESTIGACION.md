@@ -2,11 +2,9 @@
 
 > Estado al 4 de noviembre de 2026: verificados el relato del hermano Lorenzo y la cita de *El Camino a Cristo* (CC 93.1). El resto de esta lista sigue sin verificar, incluidas las traducciones bíblicas propias.
 
-Nada de esta lista está verificado todavía. Son pistas a confirmar o descartar.
-
 ## ¿Qué fuentes hay que verificar?
 
-- [ ] **El Camino a Cristo.** El pasaje que dice que Dios nos habla por la naturaleza, por su providencia, por la influencia de su Espíritu y por su Palabra. Nico recuerda la página 92. Una búsqueda inicial lo ubica en el capítulo sobre el conocimiento de Dios; falta confirmar el texto exacto en español, la edición y la página.
+- [x] **El Camino a Cristo.** Verificado: capítulo «El privilegio de la oración», CC 93.1 ([EGW Writings](https://m.egwwritings.org/es/book/1749.376)). Sigue: «Pero esto no basta; necesitamos abrirle nuestro corazón». Falta la página en la edición de Nico (92 o 93, según la edición).
 - [x] **Hermano Lorenzo.** Verificado en la traducción inglesa de dominio público: dieciocho años, invierno, árbol sin hojas, visión de la providencia y el poder de Dios. Ver [`fuentes/hermano-lorenzo.md`](fuentes/hermano-lorenzo.md).
 - [ ] **Árbol violeta en diagonal a la casa de Nico:** ¿es un jacarandá? Si lo es, la ciencia del jacarandá sirve para el prólogo y para el testimonio 01.
 
