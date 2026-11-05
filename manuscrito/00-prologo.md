@@ -14,7 +14,9 @@ Un árbol sin hojas. Nada más.
 
 Cuando leí eso, me resonó muchísimo. Y fue el flechazo final. Me dije: tengo que escribir un libro con las experiencias en que Dios me habló a través de la naturaleza. Las veces en que me ayudó a entender algo. Las veces en que me aconsejó. Las veces en que me hizo sentir querido, mimado, protegido. Y las veces en que me cambió de dirección.
 
-Ellen G. White lo dice en una frase de *El Camino a Cristo*: «Dios nos habla por la naturaleza y por la revelación, por su providencia y por la influencia de su Espíritu».
+Ellen G. White lo dice en una frase de *El Camino a Cristo*: «Dios nos habla por la naturaleza y por la revelación, por su providencia y por la influencia de su Espíritu». Y enseguida agrega: «Pero esto no basta; necesitamos abrirle nuestro corazón».
+
+Me parece que este libro cuenta justamente eso. La creación me llamó la atención hacia Jesús. Pero lo que más me cambió fue empezar a conversar con Él.
 
 Y Jesús enseñaba así. Señalaba. «Miren las aves del cielo». «Fíjense en los lirios del campo». Hablaba de semillas, de higueras, del viento. Miraba lo de todos los días y ahí mostraba al Padre.
 

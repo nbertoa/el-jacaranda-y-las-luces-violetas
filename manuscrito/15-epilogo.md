@@ -30,7 +30,7 @@ Con las señales me pasa algo parecido. Jesús explicaba muchas cosas con la nat
 
 No creo que haya que andar buscando señales en cada árbol. Pero tampoco quiero cerrar esa puerta, porque es una de las formas en que Dios se comunica.
 
-Y hay algo que fui aprendiendo. Cuanto más quiero que Dios me hable, cuanto más ansioso estoy, menos pasa. Los flechazos al corazón no llegan cuando los persigo. Llegan como sorpresas, cuando no los espero. Igual que el fruto del árbol.
+Y hay algo que fui aprendiendo. Los flechazos al corazón no llegan cuando los persigo. Llegan como sorpresas, cuando no los espero. Igual que el fruto del árbol.
 
 El hermano Lorenzo vio en un árbol de invierno la providencia y el poder de Dios. Después vivió más de cuarenta años conversando con Él en las tareas de todos los días: primero en la cocina del convento, y más tarde arreglando sandalias. Sin buscar nada extraordinario.
 

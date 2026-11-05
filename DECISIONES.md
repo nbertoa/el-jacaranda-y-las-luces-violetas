@@ -52,8 +52,12 @@ El título lo eligió Nico. La regla de `VOZ.md` de que los títulos sean pregun
 
 El prólogo aclara una vez que no es una voz audible y que no se puede probar cada caso. Después, los capítulos conservan la voz de convicción de Nico sin repetir aclaraciones defensivas.
 
+## D-014 — Respuestas de Nico a la segunda auditoría
+
+- Se suma al prólogo la frase siguiente de *El Camino a Cristo*: «Pero esto no basta; necesitamos abrirle nuestro corazón».
+- Se saca del epílogo la frase «cuanto más ansioso estoy, menos pasa». Queda que los flechazos llegan como sorpresas.
+- Lugares: los murciélagos y la víbora fueron en Brasilia. La rama, los hongos y los jabalíes, en Los Quebrachos, predio adventista en Córdoba. El orden entre Brasilia y Los Quebrachos no está confirmado, así que el libro los compara sin afirmar una secuencia.
+
 # ¿Qué falta decidir?
 
-- **La segunda frase de *El Camino a Cristo*:** «Pero esto no basta; necesitamos abrirle nuestro corazón». ¿Se suma al prólogo?
-- **La frase sobre la ansiedad en el epílogo:** ¿se mantiene «cuanto más ansioso estoy, menos pasa» o se cambia por «aprendí que no lo puedo provocar cuando quiero»?
-- **La cronología:** ¿los testimonios ocurrieron en el orden en que aparecen? En especial, ¿Brasilia fue antes que los jabalíes?
+- Nada pendiente del lado de las decisiones. Quedan las verificaciones de `INVESTIGACION.md` y las traducciones bíblicas propias.

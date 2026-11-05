@@ -1,6 +1,6 @@
 # ¿Pueden dos oraciones distintas tener respuesta?
 
-Fue en otra reunión de oración de Momentos a Solas con Cristo, en el mismo lugar donde habían estado los hongos.
+Fue en otra reunión de oración de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo lugar donde habían estado los hongos.
 
 Estábamos orando con mi esposa. Y de la nada, empezamos a escuchar ruidos que venían del monte.
 
@@ -22,8 +22,8 @@ Lo que pasó fue que una persona los espantó. Nada espectacular. Alguien que hi
 
 En los Evangelios, Jesús no trataba a todos de la misma manera. A Pedro, que se hundía en el agua por miedo, le tendió la mano. A María, que lloraba en el jardín, la llamó por su nombre. A cada uno lo encontraba donde estaba.
 
-Cuando comparo esta noche con las de Brasilia, veo algo más. Allá, los animales me sobresaltaban para que no me durmiera. Acá, en una reunión de oración, aparecieron animales que podían ser peligrosos, y yo estaba en paz, conversando con Jesús.
+Cuando pongo esta noche al lado de las de Brasilia, veo el contraste. Allá, los animales me sobresaltaban para que no me durmiera. Acá, en una reunión de oración, aparecieron animales que podían ser peligrosos, y yo estaba en paz, conversando con Jesús.
 
-Ya no hacía falta que me despertaran.
+Esa noche no hacía falta que me despertaran.
 
 ¿Hace falta que todos le pidamos lo mismo para que nos escuche?

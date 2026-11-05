@@ -6,7 +6,7 @@ Al principio, los momentos del uno al seis los daba como un pez en el agua. Me s
 
 Pero la reunión de oración siempre me costó. No era algo que me gustara. Y no me sentía cómodo enseñándola, porque no era algo que yo viviera.
 
-En uno de los retiros espirituales fui a un lugar en la naturaleza. Y de repente vi, a un costado, seis hongos puestos en fila.
+En uno de los retiros espirituales, en Los Quebrachos, fui a un lugar en la naturaleza. Y de repente vi, a un costado, seis hongos puestos en fila.
 
 Seis hongos. En fila.
 

@@ -1,6 +1,6 @@
 # ¿Escucha también lo que digo que no le voy a pedir?
 
-Estábamos en un retiro espiritual en Los Quebrachos.
+Estábamos en un retiro espiritual en Los Quebrachos, un predio adventista en Córdoba.
 
 Yo estaba hablando con Jesús. Le dije que quería una señal para estar seguro de que Él estaba ahí conmigo, de que realmente me escuchaba.
 
