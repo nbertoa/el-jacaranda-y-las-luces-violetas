@@ -19,5 +19,3 @@ Obviamente, ese árbol ya estaba ahí. El jacarandá florece cada primavera, y m
 Alguien podría decir que fue casualidad. Es cierto que no lo puedo probar. Para mí fue el comienzo de todo.
 
 Me gusta pensar que el primer gesto de Jesús conmigo no fue un trueno ni una visión. Fue un árbol floreciendo a su tiempo, frente a una oficina cualquiera, mientras yo hacía una pausa en el trabajo.
-
-¿Cuántos árboles florecieron frente a mí antes de que diera vuelta la silla?
