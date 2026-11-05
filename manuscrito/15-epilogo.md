@@ -14,7 +14,7 @@ Un día me di cuenta de algo más. El naranjo no sólo da naranjas. También da 
 
 Hace unos dos años, mi esposa plantó un limonero. Todavía tiene que crecer mucho antes de dar limones en abundancia. Se lo puede regar y cuidar, pero no se le puede exigir que dé lo mismo que un árbol de muchos años. Hay procesos que necesitan tiempo. Y me parece que crecer con Jesús se parece mucho más a crecer como un árbol que a cumplir un proyecto con plazos.
 
-Ésta es la idea que más me importa de todo el libro.
+Hasta acá hablé del fruto como lo que comparto con otros. Pero hay otro fruto, más adentro: lo que Jesús va haciendo crecer en mí. Y ésta es la idea que más me importa de todo el libro.
 
 El árbol no trata de dar fruto. No está obsesionado con producir naranjas. No se compara con los árboles vecinos. No se preocupa por lo que va a pasar el año que viene. Se queda donde está, recibiendo agua, luz y lo que la tierra le da. Y de esa vida, cuando llega el momento, aparece el fruto.
 
@@ -32,7 +32,7 @@ No creo que haya que andar buscando señales en cada árbol. Pero tampoco quiero
 
 Y hay algo que fui aprendiendo. Cuanto más quiero que Dios me hable, cuanto más ansioso estoy, menos pasa. Los flechazos al corazón no llegan cuando los persigo. Llegan como sorpresas, cuando no los espero. Igual que el fruto del árbol.
 
-El hermano Lorenzo vio en un árbol de invierno la providencia y el poder de Dios. Después vivió más de cuarenta años conversando con Él mientras trabajaba en la cocina, sin buscar nada extraordinario.
+El hermano Lorenzo vio en un árbol de invierno la providencia y el poder de Dios. Después vivió más de cuarenta años conversando con Él en las tareas de todos los días: primero en la cocina del convento, y más tarde arreglando sandalias. Sin buscar nada extraordinario.
 
 Al principio de este libro, yo le pedía a Jesús luces violetas, murciélagos y ramas gigantes. Necesitaba saber que me escuchaba.
 

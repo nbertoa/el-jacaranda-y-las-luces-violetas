@@ -1,6 +1,6 @@
 # Manuscrito
 
-Segundo borrador, revisado el 4 de noviembre de 2026 para que los testimonios sean el centro y se escuche bien en ElevenReader. Unas 6.300 palabras.
+Borrador revisado el 4 de noviembre de 2026, después de dos auditorías externas (ver `../revision/`). Unas 6.300 palabras.
 
 | Archivo | Título |
 |---|---|

@@ -20,11 +20,9 @@ Y Jesús enseñaba así. Señalaba. «Miren las aves del cielo». «Fíjense en 
 
 Este libro es eso: testimonios. Los cuento como pasaron.
 
-Quiero ser claro con algo desde el principio. Cuando digo que Jesús me habló, no hablo de una voz que escuché con los oídos. Es una impresión fuerte, adentro, que yo llamo un flechazo al corazón. No puedo probar que cada una de estas cosas fue obra de Él. Un jacarandá florece en primavera, una paloma se posa, una rama se cae. Lo que sí puedo contar es lo que pasó, y cómo lo viví hablando con Jesús.
+Cuando digo que Jesús me habló, no hablo de una voz que escuché con los oídos. Es una impresión fuerte, adentro, que yo llamo un flechazo al corazón. Un jacarandá florece en primavera, una paloma se posa, una rama se cae. No puedo probar que cada cosa fue obra de Él. Lo que puedo contar es lo que pasó, y cómo lo viví hablando con Jesús.
 
 No todos los testimonios terminan con una respuesta. Algunos terminan con una pregunta, y así los dejo.
-
-Al principio de este camino, yo le pedía señales a Jesús. Al final, frente a un naranjo agrio que está enfrente de mi casa, ya no le pido nada. Sólo miro. Y Jesús me acompañó en las dos cosas.
 
 ¿Puede Dios hablar a través de un árbol?
 

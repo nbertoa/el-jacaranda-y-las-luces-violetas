@@ -24,7 +24,7 @@ Muchas veces, la naturaleza me había hablado con cosas lindas: flores violetas,
 
 Me recuerda a Getsemaní. La última noche antes de la cruz, Jesús les pidió a Pedro, a Santiago y a Juan que velaran con Él mientras oraba. Volvió y los encontró dormidos. Le dijo a Pedro: «¿Así que no pudieron velar conmigo ni una hora? Velen y oren. El espíritu está dispuesto, pero la carne es débil».
 
-Junto con la pregunta, Jesús dijo algo que es verdad para todos: uno quiere, pero el cuerpo no acompaña. Yo me reconozco en esos discípulos. Quería orar, pero el sueño y el frío ganaban.
+Junto con la pregunta, Jesús dijo algo que es verdad para todos: uno quiere, pero el cuerpo no acompaña. Con toda la distancia que hay entre esa noche y una vigilia en Brasilia, yo me reconozco en esos discípulos. Quería orar, pero el sueño y el frío ganaban.
 
 A mí me parece que los murciélagos y la víbora fueron una forma de cuidado. Como alguien que te toca el hombro cuando te estás quedando dormido en un momento importante. No para retarte, sino para que no te pierdas lo que está pasando.
 

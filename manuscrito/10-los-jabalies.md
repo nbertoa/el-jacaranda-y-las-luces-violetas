@@ -20,7 +20,7 @@ Me gusta mucho esta escena, porque es la misma situación con dos oraciones dist
 
 Lo que pasó fue que una persona los espantó. Nada espectacular. Alguien que hizo lo que había que hacer, en el momento justo. Yo lo viví como la respuesta al pedido de mi esposa. Me parece que muchas veces Jesús responde así: a través de alguien que está cerca.
 
-En los Evangelios, Jesús trataba a cada persona según lo que tenía adentro. A Pedro, que se hundía en el agua por miedo, le tendió la mano. A María, que lloraba en el jardín, la llamó por su nombre. A cada uno lo encontraba donde estaba.
+En los Evangelios, Jesús no trataba a todos de la misma manera. A Pedro, que se hundía en el agua por miedo, le tendió la mano. A María, que lloraba en el jardín, la llamó por su nombre. A cada uno lo encontraba donde estaba.
 
 Cuando comparo esta noche con las de Brasilia, veo algo más. Allá, los animales me sobresaltaban para que no me durmiera. Acá, en una reunión de oración, aparecieron animales que podían ser peligrosos, y yo estaba en paz, conversando con Jesús.
 

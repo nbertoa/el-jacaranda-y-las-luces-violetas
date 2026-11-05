@@ -10,13 +10,13 @@ Terminó ese bloque de oración. Fuimos y nos sentamos para recibir la próxima 
 
 El cielo estaba totalmente despejado. Y de la nada vino un viento súper cálido. Como si fuera el aire de un secador de pelo al máximo.
 
-Todos lo empezamos a sentir. Nos empezamos a mirar unos a otros, porque nos dimos cuenta de que estaba pasando algo. De repente estaba súper frío, y ahora cálido. No vino ninguna tormenta. No llovió. No hubo nubes. Nos pareció súper raro. Y nos dimos cuenta de que era Dios respondiendo a la oración.
+Todos lo empezamos a sentir. Nos empezamos a mirar unos a otros, porque nos dimos cuenta de que estaba pasando algo. De repente estaba súper frío, y ahora cálido. No vino ninguna tormenta. No llovió. No hubo nubes. Nos pareció súper raro. Y lo vivimos como Dios respondiendo a la oración.
 
 Después hablé con uno de mis amigos que también estaba en ese retiro. Y me contó algo.
 
 En el mismo bloque en que yo le estaba comentando a Dios lo del frío, él le estaba pidiendo que por favor lo ayudara. Le estaba costando orar con ese frío.
 
-Dos personas. Una comentando, otra pidiendo. Una sola respuesta para los siete.
+Dos personas. Una comentando, otra pidiendo. Y lo que todos sentimos como una sola respuesta, para los siete.
 
 Fue el cariño de Dios, usando la naturaleza para que la reunión de oración se pudiera hacer bien.
 

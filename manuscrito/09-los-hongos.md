@@ -30,7 +30,7 @@ Los hongos que vemos son sólo una parte pequeña de algo mucho más grande. El 
 
 Me parece que así fue mi relación con la oración durante esos meses. Algo estaba creciendo bajo tierra, sin que yo lo viera. Hasta que asomó.
 
-Los discípulos de Jesús lo veían orar, muchas veces solo, de madrugada. Y un día uno le pidió: «Señor, enséñanos a orar». Eran personas que habían orado toda la vida. Pero veían algo en Jesús que ellos no tenían, y lo pidieron. Eso fue lo que hice yo.
+Los discípulos de Jesús lo veían orar, muchas veces solo, de madrugada. Y un día uno le pidió: «Señor, enséñanos a orar». Veían algo en la forma en que Jesús oraba, y lo pidieron. Eso fue lo que hice yo.
 
 Cuando pongo este testimonio al lado del de Brasilia, veo la misma lucha. La oración siempre me costó. Jesús no me dejó solo en eso. Me despertó cuando me dormía. Me mostró lo que me faltaba. Y después me mostró que ya estaba.
 

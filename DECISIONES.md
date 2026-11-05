@@ -22,7 +22,7 @@ El testimonio es el centro. La Biblia y la ciencia entran sólo donde le dan cue
 
 ## D-006 — Cuándo se escribe
 
-Nico pidió el 4 de noviembre de 2026 escribir el libro completo de una vez. Está el primer borrador en `manuscrito/`.
+Nico pidió el 4 de noviembre de 2026 escribir el libro completo de una vez. El borrador vive en `manuscrito/` y pasó por dos auditorías externas (ver `revision/`).
 
 ## D-010 — Fuera el clavel y las mascotas perdidas
 
@@ -34,7 +34,7 @@ Idea final del libro, dicha por Nico: no hay que andar buscando señales en la n
 
 ## D-009 — Un capítulo por testimonio, sin páginas de partes
 
-Cada testimonio es un capítulo, en el orden de `ESTRUCTURA.md`. Las partes quedan como orden interno, sin páginas propias. La cita de *El Camino a Cristo* está en el capítulo «El privilegio de la oración».
+Cada testimonio es un capítulo, en el orden de `ESTRUCTURA.md`. Las partes quedan como orden interno, sin páginas propias. La cita de *El Camino a Cristo* que usa el prólogo está en el libro de Ellen G. White, en su capítulo «El privilegio de la oración» (CC 93.1 o 92.1, según la edición).
 
 ## D-007 — Traducción bíblica
 
@@ -44,9 +44,16 @@ Traducción propia, directamente del hebreo y del griego. Una vez hecha cada cit
 
 El prólogo cuenta el origen: la amiga que cada año recuerda el testimonio del jacarandá cuando ve los árboles florecidos, el árbol violeta en diagonal a la casa de Nico, y la conversión del hermano Lorenzo como el flechazo final para escribir.
 
+## D-012 — El título del libro no es pregunta
+
+El título lo eligió Nico. La regla de `VOZ.md` de que los títulos sean preguntas se aplica a los capítulos, no al título del libro.
+
+## D-013 — «Jesús me habló» es una impresión interior
+
+El prólogo aclara una vez que no es una voz audible y que no se puede probar cada caso. Después, los capítulos conservan la voz de convicción de Nico sin repetir aclaraciones defensivas.
+
 # ¿Qué falta decidir?
 
-- **¿El título se queda aunque no sea pregunta?** `VOZ.md` pide que todos los títulos sean preguntas. Nico eligió uno que no lo es. Hay que decidir si es una excepción para el título del libro, o si se busca una forma de pregunta. Los títulos de capítulo sí irían como preguntas.
-- **¿Cómo conviven los testimonios con la regla de no ponerse como medida?** El libro es autobiográfico por naturaleza. Los testimonios son reales y van como hechos; lo que hay que cuidar es no presentar a Nico como ejemplo a imitar ni como medida de la fe del lector.
-- **¿La parte «Cuidado en lo chico» queda como parte propia?**
-- **¿Entran testimonios de veces en que se pidió una señal y no llegó?** Le darían al libro más honestidad y evitarían que se lea como fórmula.
+- **La segunda frase de *El Camino a Cristo*:** «Pero esto no basta; necesitamos abrirle nuestro corazón». ¿Se suma al prólogo?
+- **La frase sobre la ansiedad en el epílogo:** ¿se mantiene «cuanto más ansioso estoy, menos pasa» o se cambia por «aprendí que no lo puedo provocar cuando quiero»?
+- **La cronología:** ¿los testimonios ocurrieron en el orden en que aparecen? En especial, ¿Brasilia fue antes que los jabalíes?

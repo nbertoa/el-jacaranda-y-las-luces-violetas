@@ -14,7 +14,7 @@ Libro narrativo-contemplativo de Nicolás Bertoa. Reúne testimonios reales de c
 | [`INVESTIGACION.md`](INVESTIGACION.md) | Lo que hay que investigar: Biblia, ciencia, historia y fuentes |
 | [`testimonios/`](testimonios/) | Un archivo por testimonio: lo que pasó, lo que entendí, qué investigar |
 | [`fuentes/`](fuentes/) | Material de partida, como la reflexión del árbol |
-| [`manuscrito/`](manuscrito/) | Prólogo, 14 capítulos y epílogo: primer borrador completo |
+| [`manuscrito/`](manuscrito/) | Prólogo, 14 capítulos y epílogo: borrador revisado |
 
 ## ¿Cómo se trabaja?
 

@@ -14,11 +14,11 @@ Luces violetas. Un murciélago. Una rama gigante.
 
 Tres veces dije «no te voy a pedir esto». Tres veces llegó exactamente eso.
 
-No digo que tres coincidencias demuestren nada. No lo demuestran. Pero para mí dejaron de ser coincidencias. Lo viví como un idioma que Jesús encontró conmigo: tomarme la palabra justo en lo que yo decía que era imposible. Y hay algo de humor en eso. Me imagino a Jesús escuchándome decir «no te voy a pedir una rama gigante», y sonriendo.
+Para mí dejaron de ser coincidencias. Lo viví como un idioma que Jesús encontró conmigo: tomarme la palabra justo en lo que yo decía que era imposible. Y hay algo de humor en eso. Me imagino a Jesús escuchándome decir «no te voy a pedir una rama gigante», y sonriendo.
 
 Quiero ser honesto con algo. No creo que esto sea una fórmula. No creo que alcance con decir «no te pido tal cosa» para que Dios la mande.
 
-En los Evangelios, a Jesús le exigieron señales para ponerlo a prueba, y se negó a darlas. Hasta advirtió contra una fe que vive pidiendo señales. Y al mismo tiempo, hizo muchísimo por gente que se le acercaba con necesidad.
+En los Evangelios, a Jesús le exigieron señales para ponerlo a prueba, y se negó a darlas. Y hay una escena que me parece muy honesta. Un funcionario le rogó que sanara a su hijo. Jesús primero le dijo: «Si no ven señales y prodigios, no creen». Y después sanó a su hijo.
 
 Yo no le pedía señales para probarlo. Se las pedía porque estaba empezando y quería saber que no hablaba solo. Me parece que Jesús lee el corazón que hay detrás del pedido.
 

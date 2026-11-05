@@ -6,7 +6,7 @@ Sentía ruidos en los vidrios de la ventana del patio. Pensé que el vecino tira
 
 Pero después me di cuenta de que no era el vecino. Estaba sentado, y vi que era un árbol. Un árbol de su casa.
 
-Ese árbol tiene una forma particular de soltar sus semillas. No deja caer el fruto al piso, como un naranjo. No espera a que el viento se lleve las semillas, ni a que un pájaro se las coma. Lo suyo explota. La semilla se abre de golpe y sale disparada. Lo que golpeaba nuestro vidrio era la cáscara de la semilla, que después caía al piso.
+Ese árbol tiene una forma particular de soltar sus semillas. No deja caer el fruto al piso, como un naranjo. No espera a que el viento se lleve las semillas, ni a que un pájaro se las coma. Lo suyo explota. El fruto se abre de golpe y lanza las semillas con fuerza. Lo que golpeaba nuestro vidrio era la cáscara, que después caía al piso.
 
 Tanto enojo, y era un árbol haciendo lo suyo.
 

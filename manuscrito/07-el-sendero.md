@@ -14,7 +14,7 @@ Ahí, frente a esa majestuosidad, sentí realmente la presencia de Jesús. Y me 
 
 Desde adentro del bosque no había ningún indicio de lo que había del otro lado. Nunca hubiese pensado que estaba eso.
 
-En el libro de Jeremías, Dios le dice a su pueblo, que estaba en el exilio: «Me van a buscar y me van a encontrar, porque me van a buscar con todo su corazón». No es una promesa sobre la meditación bíblica. Es una palabra para gente lejos de casa, que esperaba volver. Pero me parece que muestra cómo es Dios: no se esconde de los que lo buscan de verdad.
+A su pueblo, que estaba en el exilio, lejos de casa, Dios le dijo por medio de Jeremías: «Me van a buscar y me van a encontrar, porque me van a buscar con todo su corazón». Me parece que eso muestra cómo es Dios: no se esconde de los que lo buscan de verdad.
 
 Esta caminata fue distinta de las primeras experiencias. No le había pedido ninguna señal. Iba caminando y conversando con Él. Y el camino mismo se volvió la respuesta.
 

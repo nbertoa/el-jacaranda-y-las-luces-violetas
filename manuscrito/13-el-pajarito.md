@@ -10,11 +10,9 @@ Le seguíamos dando agua y pan, pero el pajarito no comía. Había estado al sol
 
 Pero el pajarito terminó muriendo.
 
-El pan con leche no es un buen alimento para un pichón. Nosotros hicimos lo que sabíamos en ese momento. No sé si eso cambió algo.
-
 Me fui a caminar. Y le hablé a Jesús. Estaba molesto.
 
-Le dije que Él lo podría haber cuidado. Que nosotros habíamos hecho lo que pudimos. Que por qué lo había dejado morir, si en su Palabra habla de los pajaritos, y dice que los cuida y que los alimenta.
+Le dije que Él lo podría haber cuidado. Que nosotros habíamos hecho lo que pudimos. Aunque, la verdad, no sabíamos bien cómo ayudarlo. Hoy sé que el pan con leche no es alimento para un pichón, y que a veces los pichones están en el suelo y sus padres los siguen cuidando. No sé si algo de eso cambió lo que pasó. Que por qué lo había dejado morir, si en su Palabra habla de los pajaritos, y dice que los cuida y que los alimenta.
 
 Mientras le hablaba de esto, empecé a darme cuenta de que había pajaritos cerca de mí. Y que cuando yo caminaba, volaban hacia el lado en que yo iba.
 

@@ -20,4 +20,4 @@ Eso era lo que yo había perdido. No una técnica, no una disciplina. La conexi�
 
 El hermano Lorenzo vio un árbol pelado en invierno y pensó en las hojas que iban a volver. Yo vi un árbol pelado y primero me vi a mí mismo. Después vi el brote. Me parece que las dos cosas son verdad: un árbol sin hojas puede ser un diagnóstico, y también una promesa.
 
-¿Qué está dormido en mí, esperando que vuelva el calor?
+¿De dónde estoy sacando la vida: de la rama, o de la vid?

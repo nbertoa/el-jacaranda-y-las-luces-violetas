@@ -1,5 +1,7 @@
 # ¿Qué hay que investigar?
 
+> Estado al 4 de noviembre de 2026: verificados el relato del hermano Lorenzo y la cita de *El Camino a Cristo* (CC 93.1). El resto de esta lista sigue sin verificar, incluidas las traducciones bíblicas propias.
+
 Nada de esta lista está verificado todavía. Son pistas a confirmar o descartar.
 
 ## ¿Qué fuentes hay que verificar?

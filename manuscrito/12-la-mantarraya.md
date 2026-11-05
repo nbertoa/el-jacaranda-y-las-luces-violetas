@@ -4,11 +4,11 @@ Este testimonio es distinto. No digo que haya sido Jesús hablándome. Lo cuento
 
 Nos fuimos de viaje en familia a Brasil, a Maceió. Estábamos en la playa. Pisé en un lugar de la arena donde había una raya. No me di cuenta de que estaba ahí. Y me picó.
 
-Yo siempre la llamé mantarraya. Pero las mantarrayas no tienen aguijón. Lo que me picó fue una raya, de las que tienen una espina en la cola.
+Yo siempre la llamé mantarraya, pero las mantarrayas no pican. Por cómo fue, lo más probable es que haya sido una raya de las que tienen una espina en la cola.
 
 Fueron las tres horas más horribles y dolorosas de toda mi vida. Hasta que fuimos a un hospital en Maceió, me pusieron una inyección y se me pasó.
 
-Después supe que el agua bien caliente suele aliviar mucho ese dolor, aunque igual hay que ir al médico. Si lo hubiera sabido, habría sabido mejor cómo manejarlo. Pero no lo sabía.
+Después supe que meter el pie en agua caliente, sin que llegue a quemar, suele aliviar mucho ese dolor, aunque igual hay que ir al médico. Si lo hubiera sabido, habría sabido mejor cómo manejarlo. Pero no lo sabía.
 
 Por un lado, estaba agradecido. Agradecido de que no le hubiera pasado nada a ninguno de mis hijos, ni a mi esposa.
 
