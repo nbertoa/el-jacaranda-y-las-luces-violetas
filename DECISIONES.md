@@ -24,6 +24,14 @@ El testimonio es el centro. La Biblia y la ciencia entran sólo donde le dan cue
 
 Nico pidió el 4 de noviembre de 2026 escribir el libro completo de una vez. Está el primer borrador en `manuscrito/`.
 
+## D-010 — Fuera el clavel y las mascotas perdidas
+
+Nico decidió el 4 de noviembre de 2026 sacar del libro los testimonios del clavel y de la perra y la gata perdidas, porque en ellos Dios no habló a través de la naturaleza. Los archivos de `testimonios/` se conservan como registro.
+
+## D-011 — No buscar señales, pero no cerrar la puerta
+
+Idea final del libro, dicha por Nico: no hay que andar buscando señales en la naturaleza, pero tampoco cerrar esa puerta, porque es una forma en que Dios se comunica. Cuanto más ansioso está uno porque Dios hable, menos pasa: los flechazos al corazón llegan como sorpresas.
+
 ## D-009 — Un capítulo por testimonio, sin páginas de partes
 
 Cada testimonio es un capítulo, en el orden de `ESTRUCTURA.md`. Las partes quedan como orden interno, sin páginas propias. La cita de *El Camino a Cristo* está en el capítulo «El privilegio de la oración».

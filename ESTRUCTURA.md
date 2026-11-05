@@ -45,13 +45,11 @@ Juntos cuentan el recorrido de Nico con la oración: de dormirse en las vigilias
 12. [La mantarraya en Maceió](testimonios/12-la-mantarraya.md)
 13. [El pajarito](testimonios/13-el-pajarito.md)
 
-## Parte 5 — Cuidado en lo chico
+## Parte 5 — Hablarle como al que va al lado
 
 14. [Los perros que se frenaron](testimonios/14-los-perros.md)
-15. [La perra y la gata perdidas](testimonios/15-la-perra-y-la-gata.md)
-16. [El clavel](testimonios/16-el-clavel.md)
 
-A decidir: si queda como parte propia o como testimonios de apoyo dentro de otras partes.
+La perra y la gata perdidas (15) y el clavel (16) quedaron fuera del libro: en ellos Dios no habló a través de la naturaleza. Ver D-010.
 
 ## Epílogo — El árbol que no se esfuerza
 

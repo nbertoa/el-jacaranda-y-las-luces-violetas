@@ -1,6 +1,6 @@
 # Manuscrito
 
-Segundo borrador, revisado el 4 de noviembre de 2026 para que los testimonios sean el centro y se escuche bien en ElevenReader. Unas 7.000 palabras.
+Segundo borrador, revisado el 4 de noviembre de 2026 para que los testimonios sean el centro y se escuche bien en ElevenReader. Unas 6.300 palabras.
 
 | Archivo | Título |
 |---|---|
@@ -19,9 +19,9 @@ Segundo borrador, revisado el 4 de noviembre de 2026 para que los testimonios se
 | [`12-la-mantarraya.md`](12-la-mantarraya.md) | ¿Por qué no la corriste? |
 | [`13-el-pajarito.md`](13-el-pajarito.md) | ¿No era que cuidabas a los pajaritos? |
 | [`14-los-perros.md`](14-los-perros.md) | ¿Hace falta gritar? |
-| [`15-la-perra-y-la-gata.md`](15-la-perra-y-la-gata.md) | ¿Para quién era la respuesta? |
-| [`16-el-clavel.md`](16-el-clavel.md) | ¿Cómo sabía cuál era su flor favorita? |
-| [`17-epilogo.md`](17-epilogo.md) | ¿El árbol se esfuerza por dar fruto? |
+| [`15-epilogo.md`](15-epilogo.md) | ¿El árbol se esfuerza por dar fruto? |
+
+El clavel y la perra y la gata perdidas quedaron fuera (ver D-010 en `DECISIONES.md`).
 
 ## ¿Qué falta revisar?
 
@@ -48,6 +48,5 @@ La auditoría está en [`revision/auditoria-chatgpt-2026-11-04.md`](../revision/
 - **La idea final:** no hay que ir buscando señales en la naturaleza, pero tampoco cerrar esa puerta, porque es una forma en que Dios se comunica (Jesús enseñaba con la naturaleza, Salomón meditaba en ella). Cuanto más ansioso está uno porque Dios hable, menos pasa: los flechazos al corazón son sorpresas. Integrado en el epílogo.
 - **Detalles del sendero, la paloma y la perra:** no recuerda más.
 
-## ¿Qué queda pendiente?
-
-- **El clavel y las mascotas:** en esos capítulos Dios no habla a través de la naturaleza, sino que responde una oración sobre animales o guía un regalo. Se dejan como están salvo que Nico quiera cambiar el subtítulo.
+- **El clavel y las mascotas:** Nico decidió sacarlos, porque en ellos Dios no habló a través de la naturaleza.
+- **Señales que no llegaron:** respondido con la idea final: cuando uno está ansioso buscándolas, no llegan.

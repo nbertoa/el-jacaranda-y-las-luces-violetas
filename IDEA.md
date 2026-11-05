@@ -20,7 +20,7 @@ El árbol no abre el libro. Es el lugar al que llega.
 2. **Parábolas que viví en el cuerpo:** las semillas que salen disparadas, el árbol pelado y el brote, el sendero que desemboca en las montañas.
 3. **Despertar para orar:** murciélagos, una víbora, hongos, jabalíes, un viento cálido.
 4. **Preguntas sin respuesta:** la mantarraya y el pajarito. Quedan abiertas, sin enseñanza que las cierre.
-5. **Cuidado en lo chico:** los perros, la perra y la gata perdidas, el clavel.
+5. **Hablarle como al que va al lado:** los perros que se frenaron.
 6. **Contemplación sin pedir nada:** el naranjo agrio y el limonero.
 
 ## ¿Cómo es cada capítulo?

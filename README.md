@@ -14,7 +14,7 @@ Libro narrativo-contemplativo de Nicolás Bertoa. Reúne testimonios reales de c
 | [`INVESTIGACION.md`](INVESTIGACION.md) | Lo que hay que investigar: Biblia, ciencia, historia y fuentes |
 | [`testimonios/`](testimonios/) | Un archivo por testimonio: lo que pasó, lo que entendí, qué investigar |
 | [`fuentes/`](fuentes/) | Material de partida, como la reflexión del árbol |
-| [`manuscrito/`](manuscrito/) | Prólogo, 16 capítulos y epílogo: primer borrador completo |
+| [`manuscrito/`](manuscrito/) | Prólogo, 14 capítulos y epílogo: primer borrador completo |
 
 ## ¿Cómo se trabaja?
 
@@ -26,4 +26,4 @@ Libro narrativo-contemplativo de Nicolás Bertoa. Reúne testimonios reales de c
 
 ## ¿En qué estado está?
 
-4 de noviembre de 2026: segundo borrador del manuscrito (unas 7.000 palabras). Lo que falta revisar está en [`manuscrito/README.md`](manuscrito/README.md).
+4 de noviembre de 2026: segundo borrador del manuscrito (unas 6.300 palabras, 14 capítulos). Lo que falta revisar está en [`manuscrito/README.md`](manuscrito/README.md).
