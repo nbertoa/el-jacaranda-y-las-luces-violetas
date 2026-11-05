@@ -5,21 +5,21 @@ Borrador revisado el 4 de noviembre de 2026, después de dos auditorías externa
 | Archivo | Título |
 |---|---|
 | [`00-prologo.md`](00-prologo.md) | ¿Puede Dios hablar a través de un árbol? |
-| [`01-el-jacaranda.md`](01-el-jacaranda.md) | ¿Me estás escuchando de verdad? |
-| [`02-la-paloma.md`](02-la-paloma.md) | ¿Puede una paloma volver a confirmar? |
-| [`03-el-murcielago.md`](03-el-murcielago.md) | ¿Quién deja un murciélago en el piso? |
-| [`04-la-rama.md`](04-la-rama.md) | ¿Escucha también lo que digo que no le voy a pedir? |
-| [`05-las-semillas.md`](05-las-semillas.md) | ¿A quién le llega lo que tiro? |
-| [`06-el-arbol-pelado.md`](06-el-arbol-pelado.md) | ¿Así estoy yo? |
-| [`07-el-sendero.md`](07-el-sendero.md) | ¿Qué hay del otro lado del bosque? |
-| [`08-brasilia.md`](08-brasilia.md) | ¿Por qué me cuesta tanto orar de madrugada? |
-| [`09-los-hongos.md`](09-los-hongos.md) | ¿Dónde está el séptimo hongo? |
-| [`10-los-jabalies.md`](10-los-jabalies.md) | ¿Pueden dos oraciones distintas tener respuesta? |
-| [`11-el-viento.md`](11-el-viento.md) | ¿Qué hace Dios con un comentario? |
-| [`12-la-mantarraya.md`](12-la-mantarraya.md) | ¿Por qué no la corriste? |
-| [`13-el-pajarito.md`](13-el-pajarito.md) | ¿No era que cuidabas a los pajaritos? |
-| [`14-los-perros.md`](14-los-perros.md) | ¿Le hablo sólo cuando lo necesito? |
-| [`15-epilogo.md`](15-epilogo.md) | ¿El árbol se esfuerza por dar fruto? |
+| [`01-el-jacaranda.md`](01-el-jacaranda.md) | ¿Me respondió con un jacarandá? |
+| [`02-la-paloma.md`](02-la-paloma.md) | ¿Por qué volvió la paloma? |
+| [`03-el-murcielago.md`](03-el-murcielago.md) | ¿Un murciélago en el piso de mi casa? |
+| [`04-la-rama.md`](04-la-rama.md) | ¿Y si se caía una rama gigante? |
+| [`05-las-semillas.md`](05-las-semillas.md) | ¿Quién golpeaba mi ventana? |
+| [`06-el-arbol-pelado.md`](06-el-arbol-pelado.md) | ¿Ese árbol pelado era yo? |
+| [`07-el-sendero.md`](07-el-sendero.md) | ¿Qué había al final del sendero? |
+| [`08-brasilia.md`](08-brasilia.md) | ¿Murciélagos y una víbora en plena vigilia? |
+| [`09-los-hongos.md`](09-los-hongos.md) | ¿Dónde estaba el séptimo hongo? |
+| [`10-los-jabalies.md`](10-los-jabalies.md) | ¿Jabalíes en medio de la oración? |
+| [`11-el-viento.md`](11-el-viento.md) | ¿De dónde vino ese viento cálido? |
+| [`12-la-mantarraya.md`](12-la-mantarraya.md) | ¿Qué me picó en la playa de Maceió? |
+| [`13-el-pajarito.md`](13-el-pajarito.md) | ¿Por qué murió el pajarito? |
+| [`14-los-perros.md`](14-los-perros.md) | ¿Por qué se frenaron los perros? |
+| [`15-epilogo.md`](15-epilogo.md) | ¿El naranjo se esfuerza por dar fruto? |
 
 El clavel y la perra y la gata perdidas quedaron fuera (ver D-010 en `DECISIONES.md`).
 

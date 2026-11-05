@@ -1,4 +1,4 @@
-# Capítulo 8: ¿Por qué me cuesta tanto orar de madrugada?
+# Capítulo 8: ¿Murciélagos y una víbora en plena vigilia?
 
 Estábamos en una reunión de oración en Brasilia. Eran como vigilias, de madrugada.
 

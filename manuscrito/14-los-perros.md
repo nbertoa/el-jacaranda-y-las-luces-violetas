@@ -1,4 +1,4 @@
-# Capítulo 14: ¿Le hablo sólo cuando lo necesito?
+# Capítulo 14: ¿Por qué se frenaron los perros?
 
 Habíamos sacado a pasear a la perra con mi hijo Nikito.
 

@@ -1,4 +1,4 @@
-# Capítulo 1: ¿Me estás escuchando de verdad?
+# Capítulo 1: ¿Me respondió con un jacarandá?
 
 La primera vez que hablé con Jesús, me presenté. Le dije quién era, como se hace con alguien que uno recién conoce.
 

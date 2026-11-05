@@ -1,4 +1,4 @@
-# Epílogo: ¿El árbol se esfuerza por dar fruto?
+# Epílogo: ¿El naranjo se esfuerza por dar fruto?
 
 Enfrente de mi casa hay un naranjo. Da naranjas agrias.
 

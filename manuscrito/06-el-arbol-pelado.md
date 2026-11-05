@@ -1,4 +1,4 @@
-# Capítulo 6: ¿Así estoy yo?
+# Capítulo 6: ¿Ese árbol pelado era yo?
 
 Hubo un tiempo en que estuve desconectado de Jesús.
 

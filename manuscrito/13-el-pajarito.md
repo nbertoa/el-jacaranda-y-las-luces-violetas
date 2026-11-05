@@ -1,4 +1,4 @@
-# Capítulo 13: ¿No era que cuidabas a los pajaritos?
+# Capítulo 13: ¿Por qué murió el pajarito?
 
 En la casa donde vivíamos antes, encontramos un pajarito en el suelo. Al parecer, el árbol había tenido algún problema, y el pajarito se había caído. Era bebé. No podía volar.
 

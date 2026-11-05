@@ -1,4 +1,4 @@
-# Capítulo 10: ¿Pueden dos oraciones distintas tener respuesta?
+# Capítulo 10: ¿Jabalíes en medio de la oración?
 
 Fue en otra reunión de oración de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo lugar donde habían estado los hongos.
 

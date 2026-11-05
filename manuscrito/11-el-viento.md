@@ -1,4 +1,4 @@
-# Capítulo 11: ¿Qué hace Dios con un comentario?
+# Capítulo 11: ¿De dónde vino ese viento cálido?
 
 Estábamos en otra reunión de oración de Momentos a Solas con Cristo. Éramos pocos: siete personas.
 
