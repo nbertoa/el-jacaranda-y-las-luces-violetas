@@ -243,7 +243,7 @@ A mí me parece que los murciélagos y la víbora fueron una forma de cuidado. C
 
 # Capítulo 9: ¿Dónde estaba el séptimo hongo?
 
-Fui orador de un ministerio que se llama Momentos a Solas con Cristo. El programa tiene seis momentos y una reunión de oración.
+Soy orador de un ministerio que se llama Momentos a Solas con Cristo. El programa tiene seis momentos y una reunión de oración.
 
 Al principio, los momentos del uno al seis los daba como un pez en el agua. Me sentía capacitado, me sentía muy bien. Tenía testimonios en cada momento. Conocía el contenido. Y me sentía con autoridad para enseñarlo, porque lo vivía.
 
