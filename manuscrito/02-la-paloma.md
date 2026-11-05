@@ -1,4 +1,4 @@
-# ¿Puede una paloma volver a confirmar?
+# Capítulo 2: ¿Puede una paloma volver a confirmar?
 
 Yo estaba recién empezando. Había conocido a Jesús hacía poco, y quería más pruebas de que era real.
 

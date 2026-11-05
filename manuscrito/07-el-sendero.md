@@ -1,4 +1,4 @@
-# ¿Qué hay del otro lado del bosque?
+# Capítulo 7: ¿Qué hay del otro lado del bosque?
 
 Fuimos al sur con mi esposa, a Villa La Angostura, Bariloche, toda esa zona. Nos habían dicho que los senderos eran muy lindos.
 

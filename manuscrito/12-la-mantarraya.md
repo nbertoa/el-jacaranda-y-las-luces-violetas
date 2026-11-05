@@ -1,4 +1,4 @@
-# ¿Por qué no la corriste?
+# Capítulo 12: ¿Por qué no la corriste?
 
 Este testimonio es distinto. No digo que haya sido Jesús hablándome. Lo cuento porque es parte de lo que viví con la naturaleza, y porque todavía tengo preguntas.
 

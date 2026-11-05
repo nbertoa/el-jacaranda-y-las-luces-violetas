@@ -1,4 +1,4 @@
-# ¿Hace falta gritar?
+# Capítulo 14: ¿Hace falta gritar?
 
 Habíamos sacado a pasear a la perra con mi hijo Nikito.
 

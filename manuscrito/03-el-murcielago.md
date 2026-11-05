@@ -1,4 +1,4 @@
-# ¿Quién deja un murciélago en el piso?
+# Capítulo 3: ¿Quién deja un murciélago en el piso?
 
 Fue mi primer Año Nuevo con Jesús.
 

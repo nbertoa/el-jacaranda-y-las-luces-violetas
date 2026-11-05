@@ -1,4 +1,4 @@
-# ¿Dónde está el séptimo hongo?
+# Capítulo 9: ¿Dónde está el séptimo hongo?
 
 Fui orador de un ministerio que se llama Momentos a Solas con Cristo. El programa tiene seis momentos y una reunión de oración.
 

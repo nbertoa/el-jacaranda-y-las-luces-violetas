@@ -1,4 +1,4 @@
-# ¿Qué hace Dios con un comentario?
+# Capítulo 11: ¿Qué hace Dios con un comentario?
 
 Estábamos en otra reunión de oración de Momentos a Solas con Cristo. Éramos pocos: siete personas.
 

@@ -1,4 +1,4 @@
-# ¿Así estoy yo?
+# Capítulo 6: ¿Así estoy yo?
 
 Hubo un tiempo en que estuve desconectado de Jesús.
 

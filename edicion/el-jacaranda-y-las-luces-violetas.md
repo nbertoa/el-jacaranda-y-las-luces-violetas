@@ -37,7 +37,7 @@ No todos los testimonios terminan con una respuesta. Algunos terminan con una pr
 Creo que sí. No porque lo haya leído en algún lado, sino porque me pasó.
 
 
-# ¿Me estás escuchando de verdad?
+# Capítulo 1: ¿Me estás escuchando de verdad?
 
 La primera vez que hablé con Jesús, me presenté. Le dije quién era, como se hace con alguien que uno recién conoce.
 
@@ -62,7 +62,7 @@ Me gusta pensar que el primer gesto de Jesús conmigo no fue un trueno ni una vi
 ¿Cuántos árboles florecieron frente a mí antes de que diera vuelta la silla?
 
 
-# ¿Puede una paloma volver a confirmar?
+# Capítulo 2: ¿Puede una paloma volver a confirmar?
 
 Yo estaba recién empezando. Había conocido a Jesús hacía poco, y quería más pruebas de que era real.
 
@@ -87,7 +87,7 @@ Las dos cosas son verdad. Jesús atendió la necesidad de Tomás. Y le mostró q
 ¿Hasta cuándo necesité ver para creer que me escuchaba?
 
 
-# ¿Quién deja un murciélago en el piso?
+# Capítulo 3: ¿Quién deja un murciélago en el piso?
 
 Fue mi primer Año Nuevo con Jesús.
 
@@ -110,7 +110,7 @@ Yo usaba esas frases como ejemplos de algo absurdo, algo que no le iba a exigir.
 Le había dicho «murciélago» casi en broma. Y ahí estaba, en el piso, a mis pies. Casi lo levanto pensando que era un terrón de tierra.
 
 
-# ¿Escucha también lo que digo que no le voy a pedir?
+# Capítulo 4: ¿Escucha también lo que digo que no le voy a pedir?
 
 Estábamos en un retiro espiritual en Los Quebrachos, un predio adventista en Córdoba.
 
@@ -139,7 +139,7 @@ En los testimonios que siguen ya no le pido que me demuestre que existe. Algunos
 ¿Cuándo deja uno de necesitar pruebas de que lo escuchan?
 
 
-# ¿A quién le llega lo que tiro?
+# Capítulo 5: ¿A quién le llega lo que tiro?
 
 Durante un tiempo estuve enojado con mi vecino.
 
@@ -164,7 +164,7 @@ Jesús contó la parábola del sembrador. El sembrador sale a sembrar, y la semi
 ¿Cuánto de lo que suelto está cayendo en lugares que nunca voy a ver?
 
 
-# ¿Así estoy yo?
+# Capítulo 6: ¿Así estoy yo?
 
 Hubo un tiempo en que estuve desconectado de Jesús.
 
@@ -189,7 +189,7 @@ El hermano Lorenzo vio un árbol pelado en invierno y pensó en las hojas que ib
 ¿De dónde estoy sacando la vida: de la rama, o de la vid?
 
 
-# ¿Qué hay del otro lado del bosque?
+# Capítulo 7: ¿Qué hay del otro lado del bosque?
 
 Fuimos al sur con mi esposa, a Villa La Angostura, Bariloche, toda esa zona. Nos habían dicho que los senderos eran muy lindos.
 
@@ -212,7 +212,7 @@ Esta caminata fue distinta de las primeras experiencias. No le había pedido nin
 ¿Cuánto me pierdo por quedarme en el borde del bosque?
 
 
-# ¿Por qué me cuesta tanto orar de madrugada?
+# Capítulo 8: ¿Por qué me cuesta tanto orar de madrugada?
 
 Estábamos en una reunión de oración en Brasilia. Eran como vigilias, de madrugada.
 
@@ -245,7 +245,7 @@ A mí me parece que los murciélagos y la víbora fueron una forma de cuidado. C
 ¿Qué cosas incómodas me están despertando para algo que no me quiero perder?
 
 
-# ¿Dónde está el séptimo hongo?
+# Capítulo 9: ¿Dónde está el séptimo hongo?
 
 Fui orador de un ministerio que se llama Momentos a Solas con Cristo. El programa tiene seis momentos y una reunión de oración.
 
@@ -284,7 +284,7 @@ Cuando pongo este testimonio al lado del de Brasilia, años antes, veo un recorr
 ¿Qué está creciendo bajo tierra en mí, antes de que asome?
 
 
-# ¿Pueden dos oraciones distintas tener respuesta?
+# Capítulo 10: ¿Pueden dos oraciones distintas tener respuesta?
 
 Fue en otra reunión de oración de Momentos a Solas con Cristo, en Los Quebrachos, en el mismo lugar donde habían estado los hongos.
 
@@ -315,7 +315,7 @@ Ya no hacía falta que me despertaran.
 ¿Hace falta que todos le pidamos lo mismo para que nos escuche?
 
 
-# ¿Qué hace Dios con un comentario?
+# Capítulo 11: ¿Qué hace Dios con un comentario?
 
 Estábamos en otra reunión de oración de Momentos a Solas con Cristo. Éramos pocos: siete personas.
 
@@ -346,7 +346,7 @@ Me recuerda a las bodas de Caná. La madre de Jesús le comentó: «No tienen vi
 ¿Cuántas cosas le comento a Jesús sin darme cuenta de que me está escuchando?
 
 
-# ¿Por qué no la corriste?
+# Capítulo 12: ¿Por qué no la corriste?
 
 Este testimonio es distinto. No digo que haya sido Jesús hablándome. Lo cuento porque es parte de lo que viví con la naturaleza, y porque todavía tengo preguntas.
 
@@ -377,7 +377,7 @@ Creo que la fe no consiste en tener todas las respuestas. Consiste en seguir hab
 ¿Por qué no la corriste?
 
 
-# ¿No era que cuidabas a los pajaritos?
+# Capítulo 13: ¿No era que cuidabas a los pajaritos?
 
 En la casa donde vivíamos antes, encontramos un pajarito en el suelo. Al parecer, el árbol había tenido algún problema, y el pajarito se había caído. Era bebé. No podía volar.
 
@@ -410,7 +410,7 @@ No quiero usar esa frase para cerrar lo que me pasó, como si lo explicara. No l
 ¿Qué hago cuando Jesús, en vez de explicarme, simplemente se queda conmigo?
 
 
-# ¿Hace falta gritar?
+# Capítulo 14: ¿Hace falta gritar?
 
 Habíamos sacado a pasear a la perra con mi hijo Nikito.
 
